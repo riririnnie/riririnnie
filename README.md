@@ -61,7 +61,7 @@
 - DNC,, Do not copy any of my cos!!
   >You are allowed to take inspo, but if so, I'd prefer if you'd ask me directly
   
-> NOTE: I WILL block weirdos who fall into any of these criteria,, idc if you block me back.
+> **: I WILL block weirdos who fall into any of these criteria,, idc if you block me back.**
 
   
   
