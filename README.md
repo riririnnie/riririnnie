@@ -41,13 +41,16 @@
 - 𝐁𝐥𝐮𝐞 𝐋𝐨𝐜𝐤 (𝐚 𝐛𝐢𝐭 𝐧𝐞𝐰 𝐭𝐨 𝐭𝐡𝐞 𝐟𝐚𝐧𝐝𝐨𝐦)
 
 - 𝐖𝐮𝐖𝐚
+***
+Am I dirty minded? Maybe... 
+>I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that as well please tell me!
 
 </details>
 
 <details>
   <summary>"𝓓𝓸 𝓝𝓸𝓽 (𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)"</summary>
 
-- Call me any names like baby, babe.=, darling, etc. If we're not close!
+- Call me any names like baby, babe, darling, etc. If we're not close!
   >If we've been chatting for a while feel free to use any nicknames
   
 - Talk to me about any proships
