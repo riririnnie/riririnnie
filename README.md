@@ -79,6 +79,6 @@
 
   - I think roleplays are fun, but when I'm not in the mood sometimes I'd prefer to just watch instead of participate.
   > I also find watching rps fun
-  <details>
+ 
     
-<img width="200" height="200" alt="_ˏˋ___ˎˊ_______azul_ashengrotto______twisted_wonderland_______2_-removebg-preview" src="https://github.com/user-attachments/assets/bcf40313-7806-4459-a206-106897041c7c" />
+<img width="200" height="200" alt="_ˏˋ___ˎˊ_______azul_ashengrotto______twisted_wonderland_______2_-removebg-preview" src="https://github.com/user-attachments/assets/bcf40313-7806-4459-a206-106897041c7c" /> yes! That's all :3
