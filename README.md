@@ -1,14 +1,9 @@
 ![AZUL ASHENGROTTO ☦︎༘🐙 𐙚](https://github.com/user-attachments/assets/7989818b-0301-41ab-ae0a-8bd08cbb04f5)
 <img width="736" height="276" alt="download__31_-removebg-preview (1)" src="https://github.com/user-attachments/assets/aa696642-fec2-4b2f-98c1-7511485dd762" />
-## Hi there 👋
+## "How poor and unfortunate you are."
 
 
-<!--
-**riririnnie/riririnnie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
+🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
