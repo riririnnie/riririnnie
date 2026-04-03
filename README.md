@@ -7,7 +7,7 @@
 - *"𝕴'𝖒 𝖔𝖓 𝕻𝖔𝖓𝖞 𝕿𝖔𝖜𝖓 𝖆 𝖑𝖔𝖙"*
 - *"𝕴'𝖒 𝖚𝖘𝖚𝖆𝖑𝖑𝖞 𝖔𝖓 𝖘𝖆𝖋𝖊 𝖘𝖊𝖗𝖛𝖊𝖗, 𝖇𝖚𝖙 𝖘𝖔𝖒𝖊𝖙𝖎𝖒𝖊𝖘 𝖔𝖓 18+ 𝖙𝖔𝖔"*
 - "𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"
-  > I don't mind doubles, because yes let's love the GOAt together #notjustglazing
+  > 𝐼 𝒹𝑜𝓃'𝓉 𝓂𝒾𝓃𝒹 𝒹𝑜𝓊𝒷𝓁𝑒𝓈, 𝒷𝑒𝒸𝒶𝓊𝓈𝑒 𝓎𝑒𝓈 𝓁𝑒𝓉'𝓈 𝓁𝑜𝓋𝑒 𝓉𝒽𝑒 𝒢𝒪𝒜𝓉 𝓉𝑜𝑔𝑒𝓉𝒽𝑒𝓇 #𝓃𝑜𝓉𝒿𝓊𝓈𝓉𝑔𝓁𝒶𝓏𝒾𝓃𝑔
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 
 𝓜𝓸𝓻𝓮 𝓲𝓷𝓯𝓸
