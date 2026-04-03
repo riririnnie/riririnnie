@@ -81,6 +81,5 @@
   > I also find watching rps fun
  </details>
     𝓘 𝓪𝓵𝓼𝓸 𝓵𝓲𝓴𝓮 𝓪𝓻𝓽 𝓪𝓷𝓭 𝓘 𝓹𝓸𝓼𝓽 𝓼𝓸𝓶𝓮 𝓸𝓯 𝓶𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰𝓼 𝓸𝓷 𝓹𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽/ 𝓽𝓲𝓴𝓽𝓸𝓴, 𝓘 𝓪𝓶 𝓷𝓸 𝓵𝓸𝓷𝓰𝓮𝓻 𝓹𝓸𝓼𝓽 𝓽𝓱𝓪𝓽 𝓸𝓯𝓽𝓮𝓷 𝓫𝓾𝓽 𝔂𝓸𝓾 𝓼𝓽𝓲𝓵𝓵 𝓬𝓱𝓮𝓬𝓴 𝓲𝓽 𝓸𝓾𝓽 𝓲𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽!
-
-![picmix com_2420342](https://github.com/user-attachments/assets/bed82ad8-a069-4068-9775-86957bd36dbe)  <img width="200" height="200" alt="_ˏˋ___ˎˊ_______azul_ashengrotto______twisted_wonderland_______2_-removebg-preview" src="https://github.com/user-attachments/assets/fb648a1f-ed96-4318-be62-095445d83719" />
+<img width="200" height="200" alt="_ˏˋ___ˎˊ_______azul_ashengrotto______twisted_wonderland_______2_-removebg-preview" src="https://github.com/user-attachments/assets/fb648a1f-ed96-4318-be62-095445d83719" />
 
