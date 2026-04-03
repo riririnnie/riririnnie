@@ -96,6 +96,7 @@ Am I dirty minded? Maybe...
 ummm yeah, I'm too lazy to do this part rn but... ummm yes! mb chat yall gotta wait for this one
   </details>
   
+  <details>
 <summary>"𝓢𝓱𝓲𝓹𝓼 𝓘 𝓵𝓲𝓴𝓮,, 𝓐𝓼 𝓪 𝓜𝓾𝓵𝓽𝓲𝓼𝓱𝓲𝓹𝓮𝓻"</summary>
 
 # 𝐓𝐖𝐒𝐓 
