@@ -15,7 +15,7 @@
 
  - I'm currently hyperfixiating on TWST and DC!
      
-    𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
+    # 𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
 - TWST
 - DC
 - BSD
