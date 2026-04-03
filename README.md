@@ -10,8 +10,6 @@
 <details>
   <summary>Click here to unfold</summary>
 
-  This is the hidden text or content that will be revealed once you click.
-  You can even put **Markdown** or code blocks here!
+  test
 
-</details>
-
+</test>
