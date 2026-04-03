@@ -3,7 +3,7 @@
 
 ##  "ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢."
 # ``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲,,
-*𝕬𝖓𝖞 𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘!,, 𝕬𝖗𝖎𝖊𝖘 ,, 𝕬𝖕𝖗𝖎𝖑 10*
+*𝕬𝖓𝖞 𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘 !,, 𝕬𝖗𝖎𝖊𝖘 ,, 𝕬𝖕𝖗𝖎𝖑 10*
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 <details>
   <summary>"𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
