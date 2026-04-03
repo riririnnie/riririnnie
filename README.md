@@ -1,4 +1,4 @@
-<img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" /> <img width="200" height="200" alt="blue_sakura_icon-removebg-preview" src="https://github.com/user-attachments/assets/f099a6a8-af0a-40c8-8fc1-711bcbef6811" />
+<img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" /> <img width="350" height="350" alt="blue_sakura_icon-removebg-preview" src="https://github.com/user-attachments/assets/f099a6a8-af0a-40c8-8fc1-711bcbef6811" />
 
 
 ![AZUL ASHENGROTTO ☦︎༘🐙 𐙚](https://github.com/user-attachments/assets/c549b184-bc78-4d7a-80fc-d1717940f0a9)
