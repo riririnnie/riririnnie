@@ -1,3 +1,4 @@
+![AZUL ASHENGROTTO ☦︎༘🐙 𐙚](https://github.com/user-attachments/assets/7989818b-0301-41ab-ae0a-8bd08cbb04f5)
 ## Hi there 👋
 
 <!--
