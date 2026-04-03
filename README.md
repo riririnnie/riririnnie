@@ -14,7 +14,8 @@
   <summary>"𝓜𝓸𝓻𝓮 𝓪𝓫𝓸𝓾𝓽 𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
 
  - I'm currently hyperfixiating on TWST and DC!
-  𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
+     
+    𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
 - TWST
 - DC
 - BSD
