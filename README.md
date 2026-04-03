@@ -81,4 +81,5 @@
   > I also find watching rps fun
  </details>
     
-<img width="260" height="260" alt="_ˏˋ___ˎˊ_______azul_ashengrotto______twisted_wonderland_______2_-removebg-preview" src="https://github.com/user-attachments/assets/bcf40313-7806-4459-a206-106897041c7c" /> - 𝓘 𝓪𝓵𝓼𝓸 𝓵𝓲𝓴𝓮 𝓪𝓻𝓽 𝓪𝓷𝓭 𝓘 𝓹𝓸𝓼𝓽 𝓼𝓸𝓶𝓮 𝓸𝓯 𝓶𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰𝓼 𝓸𝓷 𝓹𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽/ 𝓽𝓲𝓴𝓽𝓸𝓴
+<img width="260" height="260" alt="_ˏˋ___ˎˊ_______azul_ashengrotto______twisted_wonderland_______2_-removebg-preview" src="https://github.com/user-attachments/assets/bcf40313-7806-4459-a206-106897041c7c" />         
+𝓘 𝓪𝓵𝓼𝓸 𝓵𝓲𝓴𝓮 𝓪𝓻𝓽 𝓪𝓷𝓭 𝓘 𝓹𝓸𝓼𝓽 𝓼𝓸𝓶𝓮 𝓸𝓯 𝓶𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰𝓼 𝓸𝓷 𝓹𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽/ 𝓽𝓲𝓴𝓽𝓸𝓴
