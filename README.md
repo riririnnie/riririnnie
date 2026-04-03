@@ -6,6 +6,7 @@
 - *𝕬𝖓𝖞 𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘 !,, 𝕬𝖗𝖎𝖊𝖘 ,, 𝕬𝖕𝖗𝖎𝖑 10*
 - *"𝕴'𝖒 𝖔𝖓 𝕻𝖔𝖓𝖞 𝕿𝖔𝖜𝖓 𝖆 𝖑𝖔𝖙"*
 - *"𝕴'𝖒 𝖚𝖘𝖚𝖆𝖑𝖑𝖞 𝖔𝖓 𝖘𝖆𝖋𝖊 𝖘𝖊𝖗𝖛𝖊𝖗, 𝖇𝖚𝖙 𝖘𝖔𝖒𝖊𝖙𝖎𝖒𝖊𝖘 𝖔𝖓 18+ 𝖙𝖔𝖔"*
+- "𝓒𝓮𝓻𝓽𝓲𝓯𝓲𝓮𝓭 𝓬𝓱𝓲𝓵𝓭 𝓸𝓯 𝓐𝓹𝓸𝓵𝓵𝓸!"
 - "𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"
   > 𝐼 𝒹𝑜𝓃'𝓉 𝓂𝒾𝓃𝒹 𝒹𝑜𝓊𝒷𝓁𝑒𝓈, 𝒷𝑒𝒸𝒶𝓊𝓈𝑒 𝓎𝑒𝓈 𝓁𝑒𝓉'𝓈 𝓁𝑜𝓋𝑒 𝓉𝒽𝑒 𝒢𝒪𝒜𝓉 𝓉𝑜𝑔𝑒𝓉𝒽𝑒𝓇 #𝓃𝑜𝓉𝒿𝓊𝓈𝓉𝑔𝓁𝒶𝓏𝒾𝓃𝑔
 
@@ -66,3 +67,20 @@
   
   </details>
 
+<details>
+  <summary>"𝓟𝓸𝓷𝔂 𝓣𝓸𝔀𝓷 𝓡𝓮𝓵𝓪𝓽𝓮𝓭 𝓢𝓽𝓾𝓯𝓯"</summary>
+
+  - C+H is encouraged,, when I feel overwhelmed/ overstimulated I like hiding behind my friends.
+    
+  - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
+   >I'm usually not mad/ upset, I just don't feel like talking but I still want to hang out.
+
+  - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
+
+  - I think roleplays are fun, but when I'm not in the mood sometimes I'd prefer to just watch instead of participate.
+  > I also find watching rps fun
+
+  - 
+  
+
+  <details>
