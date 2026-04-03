@@ -95,8 +95,7 @@ Am I dirty minded? Maybe...
   <summary>"𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮"</summary>
 ummm yeah, I'm too lazy to do this part rn but... ummm yes! mb chat yall gotta wait for this one
   </details>
-    𝓘 𝓪𝓵𝓼𝓸 𝓵𝓲𝓴𝓮 𝓪𝓻𝓽 𝓪𝓷𝓭 𝓘 𝓹𝓸𝓼𝓽 𝓼𝓸𝓶𝓮 𝓸𝓯 𝓶𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰𝓼 𝓸𝓷 𝓹𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽/ 𝓽𝓲𝓴𝓽𝓸𝓴, 𝓘 𝓷𝓸 𝓵𝓸𝓷𝓰𝓮𝓻 𝓹𝓸𝓼𝓽 𝓽𝓱𝓪𝓽 𝓸𝓯𝓽𝓮𝓷 𝓫𝓾𝓽 𝓼𝓽𝓲𝓵𝓵 𝓬𝓱𝓮𝓬𝓴 𝓲𝓽 𝓸𝓾𝓽 𝓲𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽!
-
+  
 <summary>"𝓢𝓱𝓲𝓹𝓼 𝓘 𝓵𝓲𝓴𝓮,, 𝓐𝓼 𝓪 𝓜𝓾𝓵𝓽𝓲𝓼𝓱𝓲𝓹𝓮𝓻"</summary>
 
 # 𝐓𝐖𝐒𝐓 
@@ -113,6 +112,9 @@ ummm yeah, I'm too lazy to do this part rn but... ummm yes! mb chat yall gotta w
   > I'm fine w/ other ships also
   
 # I respect and support other ships as long as they are not problematic/ illegal!
+</details>
+
+𝓘 𝓪𝓵𝓼𝓸 𝓵𝓲𝓴𝓮 𝓪𝓻𝓽 𝓪𝓷𝓭 𝓘 𝓹𝓸𝓼𝓽 𝓼𝓸𝓶𝓮 𝓸𝓯 𝓶𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰𝓼 𝓸𝓷 𝓹𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽/ 𝓽𝓲𝓴𝓽𝓸𝓴, 𝓘 𝓷𝓸 𝓵𝓸𝓷𝓰𝓮𝓻 𝓹𝓸𝓼𝓽 𝓽𝓱𝓪𝓽 𝓸𝓯𝓽𝓮𝓷 𝓫𝓾𝓽 𝓼𝓽𝓲𝓵𝓵 𝓬𝓱𝓮𝓬𝓴 𝓲𝓽 𝓸𝓾𝓽 𝓲𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽!
 
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
 
