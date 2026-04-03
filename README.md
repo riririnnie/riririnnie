@@ -6,6 +6,8 @@
 - *𝕬𝖓𝖞 𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘 !,, 𝕬𝖗𝖎𝖊𝖘 ,, 𝕬𝖕𝖗𝖎𝖑 10*
 - *"𝕴'𝖒 𝖔𝖓 𝕻𝖔𝖓𝖞 𝕿𝖔𝖜𝖓 𝖆 𝖑𝖔𝖙"*
 - *"𝕴'𝖒 𝖚𝖘𝖚𝖆𝖑𝖑𝖞 𝖔𝖓 𝖘𝖆𝖋𝖊 𝖘𝖊𝖗𝖛𝖊𝖗, 𝖇𝖚𝖙 𝖘𝖔𝖒𝖊𝖙𝖎𝖒𝖊𝖘 𝖔𝖓 18+ 𝖙𝖔𝖔"*
+- "𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"
+  > I don't mind doubles, because yes let's love the GOAt together #notjustglazing
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 
 𝓜𝓸𝓻𝓮 𝓲𝓷𝓯𝓸
