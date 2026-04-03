@@ -3,12 +3,9 @@
 
 ##  "ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢."
 ``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲,,
-- On pony town most of the time,,
-- I usually stay in TWST area or on rare occasions, I'm in the Genshin area,,
-
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 <details>
-  <summary>test</summary>
+  <summary>"𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
 
   test
 
