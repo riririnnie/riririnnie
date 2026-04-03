@@ -8,6 +8,7 @@
 - *"𝕴'𝖒 𝖚𝖘𝖚𝖆𝖑𝖑𝖞 𝖔𝖓 𝖘𝖆𝖋𝖊 𝖘𝖊𝖗𝖛𝖊𝖗, 𝖇𝖚𝖙 𝖘𝖔𝖒𝖊𝖙𝖎𝖒𝖊𝖘 𝖔𝖓 18+ 𝖙𝖔𝖔"*
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 # 𝓜𝓸𝓻𝓮 𝓲𝓷𝓯𝓸
+
 <details>
   <summary>"𝓜𝓸𝓻𝓮 𝓪𝓫𝓸𝓾𝓽 𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
 
