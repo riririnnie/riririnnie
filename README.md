@@ -34,3 +34,9 @@
 >𝐖𝐮𝐖𝐚
 
 </details>
+
+<details>
+  <summary>"𝓜𝓸𝓻𝓮 𝓪𝓫𝓸𝓾𝓽 𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
+  
+  </details>
+
