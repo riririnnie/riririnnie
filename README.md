@@ -39,7 +39,19 @@
 <details>
   <summary>"𝓓𝓸 𝓝𝓸𝓽 (𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)"</summary>
 
-  -
+- Call me any names like baby. babe. darling, etc. If we're not close!
+  >If we've been chatting for a while feel free to use any nicknames
+  
+- Talk to me about any proships
+  >Proshippers DNI in general
+
+- Ask to date me?? wtf??
+  >Especially if we're not even close
+  >I'm taken IRL <3
+  
+- 
+
+  
   
   </details>
 
