@@ -39,7 +39,7 @@
 <details>
   <summary>"𝓓𝓸 𝓝𝓸𝓽 (𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)"</summary>
 
-- Call me any names like baby. babe. darling, etc. If we're not close!
+- Call me any names like baby, babe.=, darling, etc. If we're not close!
   >If we've been chatting for a while feel free to use any nicknames
   
 - Talk to me about any proships
@@ -47,9 +47,16 @@
 
 - Ask to date me?? wtf??
   >Especially if we're not even close
-  >I'm taken IRL <3
   
-- 
+  >I'm also taken IRL <3
+  
+- Make any racists/ offensive jokes! 
+  >It gets to a point buddy...
+  
+- DNC,, Do not copy any of my cos!!
+  >You are allowed to take inspo, but if so, I'd prefer if you'd ask me directly
+  
+> NOTE: I WILL block weirdos who fall into any of these criteria,, idc if you block me back.
 
   
   
