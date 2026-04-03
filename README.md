@@ -82,6 +82,5 @@
  </details>
     𝓘 𝓪𝓵𝓼𝓸 𝓵𝓲𝓴𝓮 𝓪𝓻𝓽 𝓪𝓷𝓭 𝓘 𝓹𝓸𝓼𝓽 𝓼𝓸𝓶𝓮 𝓸𝓯 𝓶𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰𝓼 𝓸𝓷 𝓹𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽/ 𝓽𝓲𝓴𝓽𝓸𝓴, 𝓘 𝓪𝓶 𝓷𝓸 𝓵𝓸𝓷𝓰𝓮𝓻 𝓹𝓸𝓼𝓽 𝓽𝓱𝓪𝓽 𝓸𝓯𝓽𝓮𝓷 𝓫𝓾𝓽 𝔂𝓸𝓾 𝓼𝓽𝓲𝓵𝓵 𝓬𝓱𝓮𝓬𝓴 𝓲𝓽 𝓸𝓾𝓽 𝓲𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽!
 
-<img width="260" height="260" alt="_ˏˋ___ˎˊ_______azul_ashengrotto______twisted_wonderland_______2_-removebg-preview" src="https://github.com/user-attachments/assets/bcf40313-7806-4459-a206-106897041c7c"
-<img width="736" height="184" alt="Character_Comment_Decoration__Furina___Genshin_Impact_Hoyolab-removebg-preview" src="https://github.com/user-attachments/assets/30724c6c-df39-4f98-b0ef-35f2abae56dc" />      <img width="500" height="500" alt="blue_sakura_icon-removebg-preview" src="https://github.com/user-attachments/assets/2c9bad72-4e89-45e7-b519-7b295a37e109" />
+<img width="500" height="500" alt="download__30_-removebg-preview (1)" src="https://github.com/user-attachments/assets/d0aece8a-c4f3-4abf-9caf-5339ad202f3c" /> 
 
