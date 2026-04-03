@@ -110,8 +110,8 @@ ummm yeah, I'm too lazy to do this part rn but... ummm yes! mb chat yall gotta w
 - AtsuLucy
 - KuniZai
   > I'm fine w/ other ships also
-  
-# I respect and support other ships as long as they are not problematic/ illegal!
+  # I respect and support other ships as long as they are not problematic/ illegal!
+
 </details>
 
 𝓘 𝓪𝓵𝓼𝓸 𝓵𝓲𝓴𝓮 𝓪𝓻𝓽 𝓪𝓷𝓭 𝓘 𝓹𝓸𝓼𝓽 𝓼𝓸𝓶𝓮 𝓸𝓯 𝓶𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰𝓼 𝓸𝓷 𝓹𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽/ 𝓽𝓲𝓴𝓽𝓸𝓴, 𝓘 𝓷𝓸 𝓵𝓸𝓷𝓰𝓮𝓻 𝓹𝓸𝓼𝓽 𝓽𝓱𝓪𝓽 𝓸𝓯𝓽𝓮𝓷 𝓫𝓾𝓽 𝓼𝓽𝓲𝓵𝓵 𝓬𝓱𝓮𝓬𝓴 𝓲𝓽 𝓸𝓾𝓽 𝓲𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽!
