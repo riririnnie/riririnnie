@@ -9,4 +9,4 @@
 
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 <button class="collapsible">Read More</button>
-<div class="content" style="display:none;">Text to unfold</div>
+<div class="content" style="display:none;">guhhdtft</div>
