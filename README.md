@@ -91,11 +91,6 @@ Am I dirty minded? Maybe...
   - I think roleplays are fun, but when I'm not in the mood sometimes I'd prefer to just watch instead of participate.
   > I also find watching rps fun
  </details>
- 
- <details>
-  <summary>"𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮"</summary>
-ummm yeah, I'm too lazy to do this part rn but... ummm yes! mb chat yall gotta wait for this one
-  </details>
   
   <details>
 <summary>"𝓢𝓱𝓲𝓹𝓼 𝓘 𝓵𝓲𝓴𝓮,, 𝓐𝓼 𝓪 𝓜𝓾𝓵𝓽𝓲𝓼𝓱𝓲𝓹𝓮𝓻"</summary>
