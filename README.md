@@ -70,7 +70,7 @@ Am I dirty minded? Maybe...
   >It gets to a point buddy...
   
 - DNC,, Do not copy any of my cos!!
-  >You are allowed to take inspo, but if so, I'd prefer if you'd ask me directly,,, cos gifted to friends are exceptions
+  >You are allowed to take inspo idrc as long as its not one to one copies,, gifted cos to friends are and exception<3¹
   
 > **NOTE: I WILL block weirdos who fall into any of these criteria,, idc if you block me back ^^**
 
