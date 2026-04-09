@@ -27,24 +27,25 @@
   # 𝕾𝖙𝖆𝖙𝖚𝖘 𝖆𝖓𝖉 𝖘𝖙𝖚𝖋𝖋
   ₍ᐢ. .ᐢ₎
 
- - online [🍏]
+- ᴏɴʟɪɴᴇ [🍏]
 > I'm online... yeah that's it. Any int,,  C + H,, freely!
 
-- idle / away [🌙]
+- ɪᴅʟᴇ / ᴀᴡᴀʏ [🌙]
 > Likely offt,, making skins,, w2i but I might reply late!
 
-- busy [⛔]
+- ʙᴜꜱʏ [⛔]
 > ngl I'll just use this or the idle status bcs the emojis look cool :p,, basically the same as the away status, except you can see if I'm in the menu here which I likely will be.
 
--IWECUF/ IWCUF (preferably w2i)
+- ɪᴡᴇᴄᴜꜰ/ ɪᴡᴄᴜꜰ (preferably w2i)
 > might not int w/ others unless friend
 
-- DNIUF
+- ᴅɴɪᴜꜰ
 > Do not interact entirely unless friend
 
-- DNIUCF / IWECUCF,, etc
-  Esp if we're friends on disc you're allowed to int
-> [Kio, Krill, Lyn, Shio, Zyren, Revi, Cosmo, Mimi, int/ C + H freely]
+-  ᴅɴɪᴜᴄꜰ / ɪᴡᴇᴄᴜᴄꜰ,, ᴇᴛᴄ
+>  Esp if we're friends on disc you're allowed to int
+
+> [ᴋɪᴏ, ᴋʀɪʟʟ, ʟʏɴ, ꜱʜɪᴏ, ᴢʏʀᴇɴ, ʀᴇᴠɪ, ᴄᴏꜱᴍᴏ, ᴍɪᴍɪ, ɪɴᴛ/ ᴄ + ʜ ꜰʀᴇᴇʟʏ]
 
 > I use this when I'm in a rlly tired / bad mood
 
