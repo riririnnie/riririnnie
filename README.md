@@ -23,7 +23,30 @@
 
 <details>
   <summary>"𝓜𝓸𝓻𝓮 𝓪𝓫𝓸𝓾𝓽 𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
-    𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
+
+  # Status and stuff
+
+ - online [🍏]
+> I'm online... yeah that's it. Any int,, C + H,, freely!
+
+- idle / away [🌙]
+> Likely offt,, makin skins,, w2i but I might reply late!
+
+- busy [⛔]
+> ngl I'll just use thos or the idle status bcs the emojis look cool :p,, basically the same as the away status, except you can see if I'm in the menu here which I likely will be.
+
+-IWECUF/ IWCUF (preferably w2i)
+> might not int w/ others unless friend
+
+- DINUF
+> Do not interact entirely unless friend
+
+- DNIUCF / IWECUCF,, etc
+Close friends that I consider that are allowed to interact with me are those that I'm friends w on disc
+> Kio and Krill may freely interact
+
+ 
+  #  𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
   
  > 𝐈'𝐦 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐡𝐲𝐩𝐞𝐫𝐟𝐢𝐱𝐢𝐚𝐭𝐢𝐧𝐠 𝐨𝐧 𝐓𝐖𝐒𝐓 𝐚𝐧𝐝 𝐃𝐂! 
   
@@ -69,13 +92,13 @@ Am I dirty minded? Maybe...
   
   >I'm also taken IRL <3
   
-- Make any racists/ offensive jokes! 
+- Make any homophobic/ ableist/ racists/ offensive jokes! 
   >It gets to a point buddy...
   
 - DNC,, Do not copy any of my cos!!
   >You are allowed to take inspo idrc as long as its not one to one copies,, gifted cos to friends are an exception<3¹
   
-> **NOTE: I WILL block weirdos who fall into any of these criteria,, idc if you block me back ^^**
+> **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and coevring me (◞‸ ◟)💧**
 
   
   
@@ -87,12 +110,13 @@ Am I dirty minded? Maybe...
   - C+H is encouraged,, when I feel overwhelmed/ overstimulated I like hiding behind my friends.
     
   - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
-   >I'm usually not mad/ upset, I just don't feel like talking but I still want to hang out.
+   >Not mad/ upset, I just don't feel like talking but I still want to hang out.
 
   - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
+> PLSPLS INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—)
 
-  - I think roleplays are fun, but when I'm not in the mood sometimes I'd prefer to just watch instead of participate.
-  > I also find watching rps fun
+  - I'm ok w/ roleplays, but when I'm not in the mood sometimes I'd prefer to just watch instead of participate.
+  > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
  </details>
   
   <details>
@@ -104,14 +128,19 @@ Am I dirty minded? Maybe...
 - AppleTart
 - AppleJuice
 - JamiAzu
+- Kaliruggie
 - Azul x me /j
   > I'm fine w/ other ships also
 # 𝐁𝐒𝐃
 - AtsuLucy
 - KuniZai
-  > I'm fine w/ other ships also
-  # I respect and support other ships as long as they are not problematic/ illegal!
+- Ranpoe
 
+# Other Fandoms
+- I support all that aren't problematic
+> I'm fine w/ other ships also
+  # I respect and support other ships as long as they are not problematic/ illegal!
+  
 </details>
 
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
