@@ -39,7 +39,7 @@
 -IWECUF/ IWCUF (preferably w2i)
 > might not int w/ others unless friend
 
-- DINUF
+- DNIUF
 > Do not interact entirely unless friend
 
 - DNIUCF / IWECUCF,, etc
