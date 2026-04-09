@@ -43,8 +43,9 @@
 > Do not interact entirely unless friend
 
 - DNIUCF / IWECUCF,, etc
-Close friends that I consider that are allowed to interact with me are those that I'm friends w on disc
-> Kio and Krill may freely interact
+  Esp if we're friends on disc you're allowed to int
+> [Kio, Krill, Lyn, Shio, Zyren, Revi, Cosmo, Mimi, int/ C + H freely]
+> I use this when I'm in a rlly tired / bad mood
 
 ***
  
