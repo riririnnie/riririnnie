@@ -24,16 +24,17 @@
 <details>
   <summary>"𝓜𝓸𝓻𝓮 𝓪𝓫𝓸𝓾𝓽 𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
 
-  # Status and stuff
+  # 𝕾𝖙𝖆𝖙𝖚𝖘 𝖆𝖓𝖉 𝖘𝖙𝖚𝖋𝖋
+  ₍ᐢ. .ᐢ₎
 
  - online [🍏]
-> I'm online... yeah that's it. Any int,, C + H,, freely!
+> I'm online... yeah that's it. Any int,,  C + H,, freely!
 
 - idle / away [🌙]
-> Likely offt,, makin skins,, w2i but I might reply late!
+> Likely offt,, making skins,, w2i but I might reply late!
 
 - busy [⛔]
-> ngl I'll just use thos or the idle status bcs the emojis look cool :p,, basically the same as the away status, except you can see if I'm in the menu here which I likely will be.
+> ngl I'll just use this or the idle status bcs the emojis look cool :p,, basically the same as the away status, except you can see if I'm in the menu here which I likely will be.
 
 -IWECUF/ IWCUF (preferably w2i)
 > might not int w/ others unless friend
@@ -45,8 +46,10 @@
 Close friends that I consider that are allowed to interact with me are those that I'm friends w on disc
 > Kio and Krill may freely interact
 
+***
  
   #  𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
+  ₍^. .^₎⟆
   
  > 𝐈'𝐦 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐡𝐲𝐩𝐞𝐫𝐟𝐢𝐱𝐢𝐚𝐭𝐢𝐧𝐠 𝐨𝐧 𝐓𝐖𝐒𝐓 𝐚𝐧𝐝 𝐃𝐂! 
   
@@ -71,10 +74,11 @@ Close friends that I consider that are allowed to interact with me are those tha
 - 𝐏𝐉𝐎
 
 - 𝐀𝐜𝐞 𝐀𝐭𝐭𝐨𝐫𝐧𝐞𝐲
+  
 ***
-Am I dirty minded? Maybe... 
->I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that as well please tell me!
-
+May or may not be dirty minded so IWC ig:
+>I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with thatp lease tell me!
+ദ്ദി ˉ͈̀꒳ˉ͈́ )
 
 </details>
 
@@ -83,9 +87,6 @@ Am I dirty minded? Maybe...
 
 - Call me any names like baby, babe, darling, etc. If we're not close!
   >If we've been chatting for a while feel free to use any nicknames
-  
-- Talk to me about any proships
-  >Proshippers DNI in general
 
 - Ask to date me?? wtf??
   >Especially if we're not even close
@@ -96,7 +97,24 @@ Am I dirty minded? Maybe...
   >It gets to a point buddy...
   
 - DNC,, Do not copy any of my cos!!
-  >You are allowed to take inspo idrc as long as its not one to one copies,, gifted cos to friends are an exception<3¹
+  >You are allowed to take inspo idrc as long as its not one to one copies,, gifted cos to friends are an exception <3
+
+⛔ [People who ship],,
+- 1st year x 3rd years in twst
+- Ruggie x Leona
+- Diasomnia main cast with each other
+- incest 
+- IDIA X LILIA
+- PROSHIPPERS IN GENERAL DNI PLS
+
+📣 [On thin ice/ IWEC],,
+- Epel x Trey shipper
+- Epel x Cater shipper
+  > targeted
+- Jamil x Kalim shippers
+- Genshin / Hoyo defenders
+  > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game
+
   
 > **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and coevring me (◞‸ ◟)💧**
 
