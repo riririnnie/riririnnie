@@ -45,6 +45,7 @@
 - DNIUCF / IWECUCF,, etc
   Esp if we're friends on disc you're allowed to int
 > [Kio, Krill, Lyn, Shio, Zyren, Revi, Cosmo, Mimi, int/ C + H freely]
+
 > I use this when I'm in a rlly tired / bad mood
 
 ***
