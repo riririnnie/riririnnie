@@ -88,6 +88,8 @@ May or may not be dirty minded so IWC ig:
 <details>
   <summary>"𝓓𝓸 𝓝𝓸𝓽 (𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)"</summary>
 
+# ⛔ LITERALLY DNI
+ 
 - Call me any names like baby, babe, darling, etc. If we're not close!
   >If we've been chatting for a while feel free to use any nicknames
 
@@ -95,14 +97,18 @@ May or may not be dirty minded so IWC ig:
   >Especially if we're not even close
   
   >I'm also taken IRL <3
-  
-- Make any homophobic/ ableist/ racists/ offensive jokes! 
-  >It gets to a point buddy...
-  
-- DNC,, Do not copy any of my cos!!
-  >You are allowed to take inspo idrc as long as its not one to one copies,, gifted cos to friends are an exception <3
 
-⛔ [People who ship],,
+  > Im fine w flirting as a joke, just don't ever flirt /srs 💔 
+  
+- Make any homophobic/ ableist/ racists/ offensive jokes! 👎 
+  
+- DNC,, [Do not copy] any of my cos!!
+  >You are allowed to take inspo idrc as long as it's not one to one copies,, gifted cos/ skins to friends are an exception <3
+
+- Fem TWST OCs haters
+> Fem Yuusonas AND Fem OCs. Literally sym bro and let ppl have fun 👎
+  
+ ❌ [People who ship],,
 - 1st year x 3rd years in twst
 - Ruggie x Leona
 - Diasomnia main cast with each other
@@ -113,10 +119,11 @@ May or may not be dirty minded so IWC ig:
 📣 [On thin ice/ IWEC],,
 - Epel x Trey shipper
 - Epel x Cater shipper
-  > targeted
+  > VERY TARGETED. U know who u r👎 
 - Jamil x Kalim shippers
+- Sebek x Silver shippers
 - Genshin / Hoyo defenders
-  > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game
+  > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
 
   
 > **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and you're covering me,,  (◞‸ ◟)💧**
@@ -152,6 +159,7 @@ May or may not be dirty minded so IWC ig:
 - Kaliruggie
 - Azul x me /j
   > I'm fine w/ other ships also
+  
 # 𝐁𝐒𝐃
 - AtsuLucy
 - KuniZai
