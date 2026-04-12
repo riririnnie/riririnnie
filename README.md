@@ -27,13 +27,13 @@
   # 𝕾𝖙𝖆𝖙𝖚𝖘 𝖆𝖓𝖉 𝖘𝖙𝖚𝖋𝖋
   ₍ᐢ. .ᐢ₎
 
-- ᴏɴʟɪɴᴇ [🍏]
+- [🍏] ᴏɴʟɪɴᴇ
 > I'm online... yeah that's it. Any int,,  C + H,, freely!
 
-- ɪᴅʟᴇ / ᴀᴡᴀʏ [🌙]
+- [🌙] ɪᴅʟᴇ / ᴀᴡᴀʏ
 > Likely offt,, making skins,, w2i but I might reply late!
 
-- ʙᴜꜱʏ [⛔]
+- [⛔] ʙᴜꜱʏ 
 > ngl I'll just use this or the idle status bcs the emojis look cool :p,, basically the same as the away status, except you can see if I'm in the menu here which I likely will be.
 
 - ɪᴡᴇᴄᴜꜰ/ ɪᴡᴄᴜꜰ (preferably w2i)
