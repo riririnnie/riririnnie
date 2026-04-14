@@ -15,14 +15,16 @@
 - "ᴄᴇʀᴛɪꜰɪᴇᴅ ᴄʜɪʟᴅ ᴏꜰ ᴀᴘᴏʟʟᴏ"
 - "ᴀɴᴅ ᴀᴢᴜʟ ᴀɴᴅ ᴋᴀʟɪᴍ ᴋɪɴɴɪᴇ!"
   ***
-  *"𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"*
-  > I don't mind doubles but feel free to block if uncomfrotable
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 
 𝓜𝓸𝓻𝓮 𝓲𝓷𝓯𝓸
 
 <details>
   <summary>"𝓜𝓸𝓻𝓮 𝓪𝓫𝓸𝓾𝓽 𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
+
+  ***
+   # *"𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"*
+  > I don't mind doubles but feel free to block if uncomfrotable
 
   # 𝕾𝖙𝖆𝖙𝖚𝖘 𝖆𝖓𝖉 𝖘𝖙𝖚𝖋𝖋
   ₍ᐢ. .ᐢ₎
@@ -77,6 +79,10 @@
 - 𝐏𝐉𝐎
 
 - 𝐀𝐜𝐞 𝐀𝐭𝐭𝐨𝐫𝐧𝐞𝐲
+
+- 𝐃𝐀𝐍𝐃𝐀𝐃𝐀𝐍
+
+- 𝐓𝐁𝐇𝐊
   
 ***
 May or may not be dirty minded so IWC ig:
