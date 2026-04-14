@@ -88,8 +88,9 @@ May or may not be dirty minded so IWC ig:
 <details>
   <summary>"𝓓𝓸 𝓝𝓸𝓽 (𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)"</summary>
 
-# ⛔ LITERALLY DNI
- 
+# 🚫 LITERALLY DNI
+
+🚫 If you: 
 - Call me any names like baby, babe, darling, etc. If we're not close!
   >If we've been chatting for a while feel free to use any nicknames
 
@@ -114,13 +115,14 @@ May or may not be dirty minded so IWC ig:
 - Diasomnia main cast with each other
 - incest 
 - IDIA X LILIA
+- JAMIKALI (Jamil x Kalim) shippers
+  > If u ship them whtvr, just never mention them in front of my face🚫
 - PROSHIPPERS IN GENERAL DNI PLS
 
 📣 [On thin ice/ IWEC],,
 - Epel x Trey shipper
 - Epel x Cater shipper
   > VERY TARGETED. U know who u r👎 
-- Jamil x Kalim shippers
 - Sebek x Silver shippers
 - Genshin / Hoyo defenders
   > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
