@@ -17,12 +17,11 @@
   ***
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
 
-𝓜𝓸𝓻𝓮 𝓲𝓷𝓯𝓸
+# 𝕄𝕠𝕣𝕖 𝕀𝕟𝕗𝕠:
 
 <details>
 <summary> 𝔹𝕐𝕀 (𝕋𝕎!! 𝕗𝕠𝕣 𝕤𝕖𝕟𝕤𝕚𝕥𝕚𝕧𝕖 𝕥𝕠𝕡𝕚𝕔𝕤)</summary>
-- I've been dealing with some things (I won't specify for priavcy reasons and uncomfortable in doing so) lately, and while not often, I do have the tendency to dissociate especially if I see a word that triggers me, and I make perverted jokes to cope. Interact with extreme caution because of this, and always tell me if you're uncomfortable with suggestive jokes. 
- 
+
 - NEVER make any r#pe or SA jokes in front of me or with me. I do not like the words: r#pe, gr#pe / gr#ping, s#x/ f#ck t#y, pr#stitute, and if you can, please abbrevite s#xual ass##lt.
 
 -  So keep that in mind if for any reason you have to use those words while you're with me. I'm fine if you make inappropriate jokes, I do too, but this is where I draw the line. Please respect my boundaries, thank you.
