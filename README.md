@@ -22,7 +22,7 @@
 <details>
 <summary> 𝔹𝕐𝕀 (𝕋𝕎!! 𝕗𝕠𝕣 𝕤𝕖𝕟𝕤𝕚𝕥𝕚𝕧𝕖 𝕥𝕠𝕡𝕚𝕔𝕤)</summary>
 
-- NEVER make any r#pe or SA jokes in front of me or with me. I do not like the words: r#pe, gr#pe / gr#ping, s#x/ f#ck t#y, pr#stitute, and if you can, please abbrevite s#xual ass##lt.
+- NEVER make any r#pe or SA jokes in front of me or with me. I do not like the words: r#pe, gr#pe / gr#ping, s#x/ f#ck t#y, pr#stitute, and if you can, please abbreviate s#xual ass##lt.
 
 -  So keep that in mind if for any reason you have to use those words while you're with me. I'm fine if you make inappropriate jokes, I do too, but this is where I draw the line. Please respect my boundaries, thank you.
 
