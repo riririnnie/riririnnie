@@ -20,7 +20,17 @@
 𝓜𝓸𝓻𝓮 𝓲𝓷𝓯𝓸
 
 <details>
-  <summary>"𝓜𝓸𝓻𝓮 𝓪𝓫𝓸𝓾𝓽 𝓜𝓮. 𝓶𝔂𝓼𝓮𝓵𝓯, 𝓪𝓷𝓭 𝓘"</summary>
+<summary> 𝔹𝕐𝕀 (𝕋𝕎!! 𝕗𝕠𝕣 𝕤𝕖𝕟𝕤𝕚𝕥𝕚𝕧𝕖 𝕥𝕠𝕡𝕚𝕔𝕤)</summary>
+- I've been dealing with some things (I won't specify for priavcy reasons and uncomfortable in doing so) lately, and while not often, I do have the tendency to dissociate especially if I see a word that triggers me, and I make perverted jokes to cope. Interact with extreme caution because of this, and always tell me if you're uncomfortable with suggestive jokes. 
+ 
+- NEVER make any r#pe or SA jokes in front of me or with me. I do not like the words: r#pe, gr#pe / gr#ping, s#x/ f#ck t#y, pr#stitute, and if you can, please abbrevite s#xual ass##lt.
+
+-  So keep that in mind if for any reason you have to use those words while you're with me. I'm fine if you make inappropriate jokes, I do too, but this is where I draw the line. Please respect my boundaries, thank you.
+
+- You can rant to me and I'll listen but I likely won't comfort you as I'm not the best at it.
+ 
+<details>
+  <summary>"𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀"</summary>
 
   ***
    # *"𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"*
@@ -53,7 +63,7 @@
 
 ***
  
-  #  𝕸𝖞 𝖔𝖙𝖍𝖊𝖗 𝕱𝖆𝖓𝖉𝖔𝖒𝖘:
+  # My other Fandoms:
   ₍^. .^₎⟆
   
  > 𝐈'𝐦 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐡𝐲𝐩𝐞𝐫𝐟𝐢𝐱𝐢𝐚𝐭𝐢𝐧𝐠 𝐨𝐧 𝐓𝐖𝐒𝐓, 𝐏𝐉𝐎 𝐚𝐧𝐝 𝐃𝐂! 
@@ -92,7 +102,7 @@ May or may not be dirty minded so IWC ig:
 </details>
 
 <details>
-  <summary>"𝓓𝓸 𝓝𝓸𝓽 (𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)"</summary>
+  <summary>"𝔻𝕆 ℕ𝕆𝕋 (𝕀ℕ𝕋𝔼ℝ𝔸ℂ𝕋)"</summary>
 
 # 🚫 LITERALLY DNI
 
@@ -141,7 +151,7 @@ May or may not be dirty minded so IWC ig:
   </details>
 
 <details>
-  <summary>"𝓟𝓸𝓷𝔂 𝓣𝓸𝔀𝓷 𝓡𝓮𝓵𝓪𝓽𝓮𝓭 𝓢𝓽𝓾𝓯𝓯"</summary>
+  <summary>"ℙ𝕠𝕟𝕪 𝕋𝕠𝕨𝕟 ℝ𝕖𝕝𝕒𝕥𝕖𝕕"</summary>
 
   - C+H is encouraged,, when I feel overwhelmed/ overstimulated I like hiding behind my friends.
     
@@ -156,7 +166,7 @@ May or may not be dirty minded so IWC ig:
  </details>
   
   <details>
-<summary>"𝓢𝓱𝓲𝓹𝓼 𝓘 𝓵𝓲𝓴𝓮,, 𝓐𝓼 𝓪 𝓜𝓾𝓵𝓽𝓲𝓼𝓱𝓲𝓹𝓮𝓻"</summary>
+<summary>"𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!"</summary>
 
 # 𝐓𝐖𝐒𝐓 
 - RookVil
