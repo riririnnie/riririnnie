@@ -28,6 +28,8 @@
 -  So keep that in mind if for any reason you have to use those words while you're with me. I'm fine if you make inappropriate jokes, I do too, but this is where I draw the line. Please respect my boundaries, thank you.
 
 - You can rant to me and I'll listen but I likely won't comfort you as I'm not the best at it.
+
+</details>
  
 <details>
   <summary>"𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀"</summary>
