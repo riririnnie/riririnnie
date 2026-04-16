@@ -58,7 +58,7 @@
 -  ᴅɴɪᴜᴄꜰ / ɪᴡᴇᴄᴜᴄꜰ,, ᴇᴛᴄ
 >  Esp if we're friends on disc you're allowed to int
 
-> [ᴋɪᴏ, ᴋʀɪʟʟ, ʟʏɴ, ꜱʜɪᴏ, ᴢʏʀᴇɴ, ʀᴇᴠɪ, ᴄᴏꜱᴍᴏ, ᴍɪᴍɪ, ɪɴᴛ/ ᴄ + ʜ ꜰʀᴇᴇʟʏ]
+> [ᴋɪᴏ, ᴋʀɪʟʟ, ʟʏɴ, ʀᴇᴠɪ, ᴄᴏꜱᴍᴏ, ɪɴᴛ/ ᴄ + ʜ ꜰʀᴇᴇʟʏ]
 
 > I use this when I'm in a rlly tired / bad mood
 
