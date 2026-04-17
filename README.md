@@ -7,7 +7,6 @@
 
 ##  *"ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢."*
 # ``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,
-#   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 - "15 ʏ.ᴏ ꜰɪʟ ᴋɪᴋᴀʏ ɢɪʀʟɪᴇ"
 - "ᴇɴɢʟɪꜱʜ ɪꜱ ᴍʏ 2ɴᴅ ʟᴀɴɢᴜᴀɢᴇ,, ᴡᴀʀɴɪɴɢ ꜰᴏʀ ɢʀᴀᴍᴍᴀʀ ᴀɴᴅ ꜱᴘᴇʟʟɪɴɢ ᴍɪꜱᴛᴀᴋᴇꜱ ɪɴ ᴀᴅᴠᴀɴᴄᴇ"
 - "ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ!,, ᴀʀɪᴇꜱ ,, ᴀᴘʀɪʟ 10"
@@ -95,8 +94,8 @@
 - 𝐃𝐀𝐍𝐃𝐀𝐃𝐀𝐍
 
 - 𝐓𝐁𝐇𝐊
-  
-***
+
+  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 May or may not be dirty minded so IWC ig:
 >I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with thatp lease tell me!
 ദ്ദി ˉ͈̀꒳ˉ͈́ )
@@ -144,7 +143,8 @@ May or may not be dirty minded so IWC ig:
 - Sebek x Silver shippers
 - Genshin / Hoyo defenders
   > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
-
+  
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
   
 > **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and you're covering me,,  (◞‸ ◟)💧**
 
@@ -193,5 +193,7 @@ May or may not be dirty minded so IWC ig:
 </details>
 
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
+
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
  ᴛʜᴀᴛ'ꜱ ᴀʟʟ! ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴛᴡ...
