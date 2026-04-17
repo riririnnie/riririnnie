@@ -120,10 +120,6 @@ May or may not be dirty minded so IWC ig:
   > Im fine w flirting as a joke, just don't ever flirt /srs 💔 
   
 - Make any homophobic/ ableist/ racists/ offensive jokes! 👎 
-  
-- DNC,, [Do not copy] any of my cos!!
-  >You are allowed to take inspo idrc as long as it's not one to one copies,, gifted cos/ skins to friends are an exception <3
-
 - Fem TWST OCs haters
 > Fem Yuusonas AND Fem OCs. Literally sym bro and let ppl have fun 👎
   
@@ -166,6 +162,11 @@ May or may not be dirty minded so IWC ig:
 
   - I'm ok w/ roleplays, but when I'm not in the mood sometimes I'd prefer to just watch instead of participate.
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
+
+- DNC,, [Do not copy] any of my cos!!
+  >You are allowed to take inspo idrc as long as it's not one to one copies,, STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3
+  > Know the difference between inspiration and straight up copying.
+
  </details>
   
   <details>
