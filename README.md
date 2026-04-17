@@ -195,6 +195,4 @@ May or may not be dirty minded so IWC ig:
 
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
 
-⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-
  ᴛʜᴀᴛ'ꜱ ᴀʟʟ! ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴛᴡ...
