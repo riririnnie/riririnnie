@@ -99,7 +99,7 @@
   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
   
 May or may not be dirty minded so IWC ig:
->I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with thatp lease tell me!
+>I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
 ദ്ദി ˉ͈̀꒳ˉ͈́ )
 
 </details>
