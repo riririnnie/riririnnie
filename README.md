@@ -109,7 +109,7 @@ May or may not be dirty minded so IWC ig:
 
 # 🚫 LITERALLY DNI
 
-🚫 If you: 
+🚫 Don't: 
 - Call me any names like baby, babe, darling, etc. If we're not close!
   >If we've been chatting for a while feel free to use any nicknames
 
