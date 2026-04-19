@@ -181,7 +181,7 @@ May or may not be dirty minded so IWC ig:
 - CayVil
 - AppleTart
 - AppleJuice
-- JamiAzu
+- AzuJami
 - Kaliruggie
 - Azul x me /j
   > I'm fine w/ other ships also
@@ -194,7 +194,12 @@ May or may not be dirty minded so IWC ig:
 # Other Fandoms
 - I support all that aren't problematic
 > I'm fine w/ other ships also
-  # I respect and support other ships as long as they are not problematic/ illegal!
+
+> I respect and support other ships as long as they are not problematic/ illegal!
+
+***
+Note: I'm a multishipper but I dont ship every ship, so if you wish to rp with me as a ship, sometimes I won't entertain you because I simply dont ship it. 
+
   
 </details>
 
