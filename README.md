@@ -108,7 +108,7 @@ May or may not be dirty minded so IWC ig:
 
 # 🚫 LITERALLY DNI
 
-🚫 Don't: 
+🚫 If you: 
 - Call me any names like baby, babe, darling, etc. If we're not close!
   >If we've been chatting for a while feel free to use any nicknames
 
@@ -122,6 +122,10 @@ May or may not be dirty minded so IWC ig:
 - Make any homophobic/ ableist/ racists/ offensive jokes! 👎 
 - Fem TWST OCs haters
 > Fem Yuusonas AND Fem OCs. Literally sym bro and let ppl have fun 👎
+
+- Send death threats to literally anyone
+
+  # DNI!!
   
  ❌ [People who ship],,
 - 1st year x 3rd years in twst
