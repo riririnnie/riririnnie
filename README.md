@@ -49,10 +49,10 @@
 > I'm online... yeah that's it. Any int,,  C + H,, freely!
 
 - [🌙] ɪᴅʟᴇ / ᴀᴡᴀʏ
-> Likely offt,, making skins,, Listening to music,, doing chores/ homework,, w2i only!
+>AFK / S-AFK,, Likely offt,, making skins,, Listening to music,, doing chores/ homework,, w2i only!
 
 - [⛔] ʙᴜꜱʏ
-> AFK / S-AFK,, w2i only as well, will likely reply late!
+> Preoccupied with something,, may not be in the mood to talk w/ any1 else besides close friends and party,, likely tired,, w2i only as well, will likely reply late!
 
 - ɪᴡᴇᴄᴜꜰ/ ɪᴡᴄᴜꜰ (preferably w2i)
 > might not int w/ others unless friend
