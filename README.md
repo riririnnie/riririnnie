@@ -74,7 +74,8 @@
  
   <details>
   <summary>"𝕄𝕪 𝔽𝕒𝕟𝕕𝕠𝕞𝕤"</summary>
- > 𝐈'𝐦 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐡𝐲𝐩𝐞𝐫𝐟𝐢𝐱𝐢𝐚𝐭𝐢𝐧𝐠 𝐨𝐧 𝐓𝐖𝐒𝐓, 𝐏𝐉𝐎 𝐚𝐧𝐝 𝐃𝐂! 
+ 
+   > 𝐈'𝐦 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐡𝐲𝐩𝐞𝐫𝐟𝐢𝐱𝐢𝐚𝐭𝐢𝐧𝐠 𝐨𝐧 𝐓𝐖𝐒𝐓, 𝐏𝐉𝐎 𝐚𝐧𝐝 𝐃𝐂! 
   
 - 𝐓𝐖𝐒𝐓 
   
@@ -102,10 +103,10 @@
 
 - 𝐓𝐁𝐇𝐊
 
-  ⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
+  ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔
   
 May or may not be dirty minded so IWC ig:
->I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
+> I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
 ദ്ദി ˉ͈̀꒳ˉ͈́ )
 
 </details>
