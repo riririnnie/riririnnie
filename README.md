@@ -1,4 +1,4 @@
-# $\color{$\color{color-name}{𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)}$} 
+# $\color{$\color{132055}{𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)}$} 
 ***
 <img width="700" height="130" alt="lyric_" src="https://github.com/user-attachments/assets/22e152dc-083f-4525-9d6f-951399d2e7d4" />
 
