@@ -1,4 +1,4 @@
-# $\color{#203071}{𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)\space}$
+𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)
 <img width="700" height="130" alt="lyric_" src="https://github.com/user-attachments/assets/22e152dc-083f-4525-9d6f-951399d2e7d4" />
 
 <img width="700" height="350" alt="1000070831" src="https://github.com/user-attachments/assets/c70ad477-4ec8-4d93-bd89-123f819a8366" />
@@ -18,7 +18,7 @@
   
  ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
 
-# $\color{#07123e}{𝕄𝕠𝕣𝕖 𝕀𝕟𝕗𝕠:\space}$
+# 𝕄𝕠𝕣𝕖 𝕀𝕟𝕗𝕠:
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
 <details>
 <summary> 𝔹𝕐𝕀 (𝕋𝕎!! 𝕗𝕠𝕣 𝕤𝕖𝕟𝕤𝕚𝕥𝕚𝕧𝕖 𝕥𝕠𝕡𝕚𝕔𝕤)</summary>
