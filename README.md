@@ -36,17 +36,12 @@
   > At best, talk to me about it via DMs (can't guarantee I will engage)
 
 </details>
+
+ 𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀"
  
 <details>
-  <summary>"𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀"</summary>
-
-  ***
-   "𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"
-  > I don't mind doubles but feel free to block if uncomfrotable
-
+  <summary>"𝔖𝔱𝔞𝔱𝔲𝔰 𝔞𝔫𝔡 𝔖𝔱𝔲𝔣𝔣"</summary>
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
-
-  # 𝕾𝖙𝖆𝖙𝖚𝖘 𝖆𝖓𝖉 𝖘𝖙𝖚𝖋𝖋
   ₍ᐢ. .ᐢ₎
 
 - [🍏] ᴏɴʟɪɴᴇ
@@ -73,11 +68,10 @@
 ᴅɴɪᴜᴘ
 > Interact only if you're in my party, will not interact with anyone else otherwise.
 
-***
- ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
-  # My other Fandoms:
-  ₍^. .^₎⟆
-  
+</details>
+ 
+  <details>
+  <summary>"𝔐𝔶 𝔉𝔞𝔫𝔡𝔬𝔪𝔰"</summary>
  > 𝐈'𝐦 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 𝐡𝐲𝐩𝐞𝐫𝐟𝐢𝐱𝐢𝐚𝐭𝐢𝐧𝐠 𝐨𝐧 𝐓𝐖𝐒𝐓, 𝐏𝐉𝐎 𝐚𝐧𝐝 𝐃𝐂! 
   
 - 𝐓𝐖𝐒𝐓 
@@ -163,33 +157,7 @@ May or may not be dirty minded so IWC ig:
   
 > **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and you're covering me,,  (◞‸ ◟)💧**
 
-  
-  
-  </details>
-
-<details>
-  <summary>"ℙ𝕠𝕟𝕪 𝕋𝕠𝕨𝕟 ℝ𝕖𝕝𝕒𝕥𝕖𝕕"</summary>
-
-  - C+H is encouraged,, when I feel overwhelmed/ overstimulated I like hiding behind my friends.
-    
-  - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
-   > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!
-
-  - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
-> PLSPLS INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—)
-
-  - I'm ok w/ roleplays
-  > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
-
-- Ships DNI!
-  > Unless youre close with me and know what I like. I likely won't entertain you if you approach me for the sole reason of doing shipping.
-  > NOTE: Read the "𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!" to get a better understanding on which ships I allow to int w/ me. 
-
-- DNC,, [Do not copy] any of my cos!!
-  >You are allowed to take inspo idrc as long as it's not one to one copies,, STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3
-  > Know the difference between inspiration and straight up copying.
-
- </details>
+   </details>
   
   <details>
 <summary>"𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!"</summary>
@@ -238,9 +206,35 @@ Not in my favs but I'm okay with:
 ***
 Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with me as a ship, sometimes I won't entertain you because I simply dont ship it. 
 
-  
 </details>
 
+<details>
+  <summary>"ℙ𝕠𝕟𝕪 𝕋𝕠𝕨𝕟 ℝ𝕖𝕝𝕒𝕥𝕖𝕕"</summary>
+
+  - C+H is encouraged,, when I feel overwhelmed/ overstimulated I like hiding behind my friends.
+    
+  - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
+   > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!
+
+  - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
+> PLSPLS INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—)
+
+  - I'm ok w/ roleplays
+  > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
+
+- Ships DNI!
+  > Unless youre close with me and know what I like. I likely won't entertain you if you approach me for the sole reason of doing shipping.
+  > NOTE: Read the "𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!" to get a better understanding on which ships I allow to int w/ me. 
+
+- DNC,, [Do not copy] any of my cos!!
+  >You are allowed to take inspo idrc as long as it's not one to one copies,, STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3 I also nly gift close friends cos, srry!
+  > Know the difference between inspiration and straight up copying.
+
+  </details>
+  
+   ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
+
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
+ ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
 
  ᴛʜᴀᴛ'ꜱ ᴀʟʟ! ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴛᴡ...
