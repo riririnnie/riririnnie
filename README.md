@@ -8,6 +8,7 @@
 
 ##  *❝ ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢.❞*
 # ``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,
+⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
 - "ꜰɪʟ ᴋɪᴋᴀʏ ɢɪʀʟɪᴇ"
 - "ᴇɴɢʟɪꜱʜ ɪꜱ ᴍʏ 2ɴᴅ ʟᴀɴɢᴜᴀɢᴇ (ᴛᴇᴄʜɴɪᴄᴀʟʟʏ 3ʀᴅ),, ᴡᴀʀɴɪɴɢ ꜰᴏʀ ɢʀᴀᴍᴍᴀʀ ᴀɴᴅ ꜱᴘᴇʟʟɪɴɢ ᴍɪꜱᴛᴀᴋᴇꜱ ɪɴ ᴀᴅᴠᴀɴᴄᴇ"
 - "ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ!,, ᴀʀɪᴇꜱ ,, ᴀᴘʀɪʟ 10"
@@ -28,14 +29,22 @@
 
 - You can rant to me and I'll listen but I likely won't comfort you as I'm not the best at it.
 
+***
+- I'm not interested in political conversation. If you want someone to talk to about politics, then I'm not the person for that, I apologize!
+  > Because no, I don't want to talk about politics in a pixel game where I'm trying to have fun.
+
+  > At best, talk to me about it via DMs (can't guarantee I will engage)
+
 </details>
  
 <details>
   <summary>"𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀"</summary>
 
   ***
-   # *"𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"*
+   "𝓐𝔃𝓾𝓵 𝔂𝓾𝓶𝓮𝓼𝓱𝓲𝓹𝓹𝓮𝓻"
   > I don't mind doubles but feel free to block if uncomfrotable
+
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
   # 𝕾𝖙𝖆𝖙𝖚𝖘 𝖆𝖓𝖉 𝖘𝖙𝖚𝖋𝖋
   ₍ᐢ. .ᐢ₎
@@ -44,10 +53,9 @@
 > I'm online... yeah that's it. Any int,,  C + H,, freely!
 
 - [🌙] ɪᴅʟᴇ / ᴀᴡᴀʏ
-> Likely offt,, making skins,, w2i but I might reply late!
+> Likely offt,, making skins,, w2i
 
-- [⛔] ʙᴜꜱʏ 
-> ngl I'll just use this or the idle status bcs the emojis look cool :p,, basically the same as the away status, except you can see if I'm in the menu here which I likely will be.
+> AFK / S-AFK,, w2i as well, will likely reply late!
 
 - ɪᴡᴇᴄᴜꜰ/ ɪᴡᴄᴜꜰ (preferably w2i)
 > might not int w/ others unless friend
@@ -95,7 +103,7 @@
 
 - 𝐓𝐁𝐇𝐊
 
-  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+  ⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
   
 May or may not be dirty minded so IWC ig:
 >I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
@@ -106,7 +114,7 @@ May or may not be dirty minded so IWC ig:
 <details>
   <summary>"𝔻𝕆 ℕ𝕆𝕋 (𝕀ℕ𝕋𝔼ℝ𝔸ℂ𝕋)"</summary>
 
-# 🚫 LITERALLY DNI
+# 🚫 [LITERALLY DNI]
 
 🚫 If you: 
 - Call me any names like baby, babe, darling, etc. If we're not close!
@@ -119,13 +127,14 @@ May or may not be dirty minded so IWC ig:
 
   > Im fine w flirting as a joke, just don't ever flirt /srs 💔 
   
-- Make any homophobic/ ableist/ racists/ offensive jokes! 👎 
+- Make any homophobic/ ableist/ racists/ offensive jokes! 👎
+  
 - Fem TWST OCs haters
-> Fem Yuusonas AND Fem OCs. Literally sym bro and let ppl have fun 👎
+> Fem Yuusonas AND Fem OCs. Female character hate, esp Fem OCs hate, will NOT be tolerated 👎
 
 - Send death threats to literally anyone
 
-  # DNI!!
+  # [DNI!! - Shippers]
   
  ❌ [People who ship],,
 - 1st year x 3rd years in twst
@@ -137,7 +146,9 @@ May or may not be dirty minded so IWC ig:
   > If u ship them whtvr, just never mention them in front of my face🚫
 - PROSHIPPERS IN GENERAL DNI PLS
 
-📣 [On thin ice/ IWEC],,
+# On thin Ice, but sure.
+
+📣 [IWEC],,
 - Epel x Trey shipper
 - Epel x Cater shipper
   > VERY TARGETED. U know who u r👎 
@@ -145,7 +156,7 @@ May or may not be dirty minded so IWC ig:
 - Genshin / Hoyo defenders
   > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
   
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
   
 > **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and you're covering me,,  (◞‸ ◟)💧**
 
@@ -159,13 +170,17 @@ May or may not be dirty minded so IWC ig:
   - C+H is encouraged,, when I feel overwhelmed/ overstimulated I like hiding behind my friends.
     
   - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
-   >Not mad/ upset, I just don't feel like talking but I still want to hang out.
+   > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!
 
   - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
 > PLSPLS INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—)
 
-  - I'm ok w/ roleplays, but when I'm not in the mood sometimes I'd prefer to just watch instead of participate.
+  - I'm ok w/ roleplays
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
+
+- Ships DNI!
+  > Unless youre close with me and know what I like. I likely won't entertain you if you approach me for the sole reason of doing shipping.
+  > NOTE: Read the "𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!" to get a better understanding on which ships I allow to int w/ me. 
 
 - DNC,, [Do not copy] any of my cos!!
   >You are allowed to take inspo idrc as long as it's not one to one copies,, STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3
@@ -177,28 +192,48 @@ May or may not be dirty minded so IWC ig:
 <summary>"𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!"</summary>
 
 # 𝐓𝐖𝐒𝐓 
+My favs:
 - RookVil
 - CayVil
+- CayTrey
 - AppleTart
 - AppleJuice
 - AzuJami
 - Kaliruggie
 - Azul x me /j
-  > I'm fine w/ other ships also
+  
+Not in my favs but I'm okay w/
+- MalIdia
+- LeoVil
+- LeoMal
+- VilIdia
+- Adeuce
+  
+> Other ships IWC (caution)
+
   
 # 𝐁𝐒𝐃
+My favs:
 - AtsuLucy
 - KuniZai
 - Ranpoe
 
-# Other Fandoms
-- I support all that aren't problematic
-> I'm fine w/ other ships also
+Not in my favs but I'm okay with:
+- Soukoku
+- Shin soukoku
 
-> I respect and support other ships as long as they are not problematic/ illegal!
+  > other ships IWC (caution)
+
+# Genshin
+- All ships IWC
+
+# Other Fandoms
+- IWC (caution)
+- I respect all ships that aren't problematic.
+> I'm fine w/ other ships also but still do int w/ caution for the other ships I haven't mentioned.
 
 ***
-Note: I'm a multishipper but I dont ship every ship, so if you wish to rp with me as a ship, sometimes I won't entertain you because I simply dont ship it. 
+Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with me as a ship, sometimes I won't entertain you because I simply dont ship it. 
 
   
 </details>
