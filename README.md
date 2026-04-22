@@ -1,10 +1,11 @@
 # 𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)
 ***
-<img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" /> 
+<img width="735" height="139" alt="lyric_" src="https://github.com/user-attachments/assets/22e152dc-083f-4525-9d6f-951399d2e7d4" />
 
 <img width="700" height="350" alt="1000070831" src="https://github.com/user-attachments/assets/c70ad477-4ec8-4d93-bd89-123f819a8366" />
 
-<img width="736" height="195" alt="download__31_-removebg-preview (1)" src="https://github.com/user-attachments/assets/c23b0c7a-7035-4df0-88c3-14f4e3bd8f08" />
+<img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" /> 
+
 
 ##  *❝ ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢.❞*
 # ``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,
@@ -239,7 +240,6 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 
   
 </details>
-<img width="735" height="139" alt="lyric_" src="https://github.com/user-attachments/assets/435dbc81-5332-4843-b470-07c4fe61fa92" />
 
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
 
