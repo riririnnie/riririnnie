@@ -14,9 +14,8 @@
 - "ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ!,, ᴀʀɪᴇꜱ ,, ᴀᴘʀɪʟ 10"
 - "ɪ'ᴍ ᴏɴ ᴘᴏɴʏ ᴛᴏᴡɴ ᴀ ʟᴏᴛ"
 - "ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ᴏɴ ꜱᴀꜰᴇ ꜱᴇʀᴠᴇʀ" 
-- "ᴀɴᴅ ᴀᴢᴜʟ ᴀɴᴅ ᴋᴀʟɪᴍ ᴋɪɴɴɪᴇ!"
-  ***
-<img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" />
+- "ᴀɴ ᴀᴢᴜʟ ᴀɴᴅ ᴋᴀʟɪᴍ ᴋɪɴɴɪᴇ!"
+ ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
 
 # 𝕄𝕠𝕣𝕖 𝕀𝕟𝕗𝕠:
 
@@ -53,9 +52,9 @@
 > I'm online... yeah that's it. Any int,,  C + H,, freely!
 
 - [🌙] ɪᴅʟᴇ / ᴀᴡᴀʏ
-> Likely offt,, making skins,, w2i
+> Likely offt,, making skins,, Listening to music,, doing chores/ homework,, w2i only!
 
-> AFK / S-AFK,, w2i as well, will likely reply late!
+> AFK / S-AFK,, w2i only as well, will likely reply late!
 
 - ɪᴡᴇᴄᴜꜰ/ ɪᴡᴄᴜꜰ (preferably w2i)
 > might not int w/ others unless friend
@@ -70,8 +69,11 @@
 
 > I use this when I'm in a rlly tired / bad mood
 
+ᴅɴɪᴜᴘ
+> Interact only if you're in my party, will not interact with anyone else otherwise.
+
 ***
- 
+ ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
   # My other Fandoms:
   ₍^. .^₎⟆
   
@@ -132,7 +134,7 @@ May or may not be dirty minded so IWC ig:
 - Fem TWST OCs haters
 > Fem Yuusonas AND Fem OCs. Female character hate, esp Fem OCs hate, will NOT be tolerated 👎
 
-- Send death threats to literally anyone
+- Send death threats to literally anyone,, esp if you're sending death threats to my friends!
 
   # [DNI!! - Shippers]
   
@@ -237,6 +239,7 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 
   
 </details>
+<img width="735" height="139" alt="lyric_" src="https://github.com/user-attachments/assets/435dbc81-5332-4843-b470-07c4fe61fa92" />
 
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
 
