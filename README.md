@@ -11,6 +11,7 @@
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
 - "ꜰɪʟ ᴋɪᴋᴀʏ ɢɪʀʟɪᴇ"
 - "ᴇɴɢʟɪꜱʜ ɪꜱ ᴍʏ 2ɴᴅ ʟᴀɴɢᴜᴀɢᴇ (ᴛᴇᴄʜɴɪᴄᴀʟʟʏ 3ʀᴅ),, ᴡᴀʀɴɪɴɢ ꜰᴏʀ ɢʀᴀᴍᴍᴀʀ ᴀɴᴅ ꜱᴘᴇʟʟɪɴɢ ᴍɪꜱᴛᴀᴋᴇꜱ ɪɴ ᴀᴅᴠᴀɴᴄᴇ"
+  > I'd say I'm pretty fluent in English but I may do some code-switching sometimes because I'm used to my native language. Usually I am very quick to adjust though!
 - "ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ!,, ᴀʀɪᴇꜱ ,, ᴀᴘʀɪʟ 10"
 - "ɪ'ᴍ ᴏɴ ᴘᴏɴʏ ᴛᴏᴡɴ ᴀ ʟᴏᴛ"
 - "ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ᴏɴ ꜱᴀꜰᴇ ꜱᴇʀᴠᴇʀ" 
