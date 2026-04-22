@@ -50,6 +50,7 @@
 - [🌙] ɪᴅʟᴇ / ᴀᴡᴀʏ
 > Likely offt,, making skins,, Listening to music,, doing chores/ homework,, w2i only!
 
+- [⛔] ʙᴜꜱʏ
 > AFK / S-AFK,, w2i only as well, will likely reply late!
 
 - ɪᴡᴇᴄᴜꜰ/ ɪᴡᴄᴜꜰ (preferably w2i)
