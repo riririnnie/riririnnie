@@ -224,8 +224,8 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
 
 - Ships DNI!
-  > Unless youre close with me and know what I like. I likely won't entertain you if you approach me for the sole reason of doing shipping.
-  > NOTE: Read the "𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!" to get a better understanding on which ships I allow to int w/ me. 
+  > Unless youre close with me and know what I like. I likely won't entertain you if you approach me for the sole reason of shipping.
+  > NOTE: Must read the "𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!" to get a better understanding on which ships I allow to int w/ me, and check my DNI list on which ships I don't like. 
 
 - DNC,, [Do not copy] any of my cos!!
   >You are allowed to take inspo idrc as long as it's not one to one copies,, STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3 I also nly gift close friends cos, srry!
