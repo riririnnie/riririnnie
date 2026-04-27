@@ -4,8 +4,6 @@
 
 <img width="700" height="350" alt="1000070831" src="https://github.com/user-attachments/assets/c70ad477-4ec8-4d93-bd89-123f819a8366" />
 
-<img width="736" height="414" alt="1000071122" src="https://github.com/user-attachments/assets/81f957ce-0bb4-483c-be49-044526cdeda8" />
-
 
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" /> 
 
@@ -159,6 +157,10 @@ May or may not be dirty minded so IWC ig:
 - Sebek x Silver shippers
 - Genshin / Hoyo defenders
   > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
+- Darkshippers
+- VilNeige shippers
+- RookNeige shippers
+
   
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
   
@@ -170,7 +172,7 @@ May or may not be dirty minded so IWC ig:
 <summary>"𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!"</summary>
 
 # 𝐓𝐖𝐒𝐓 
-My favs:
+[My favs!]:
 - RookVil
 - CayVil
 - CayTrey
@@ -179,13 +181,15 @@ My favs:
 - AzuJami
 - Kaliruggie
 - Azul x me /j
+- Mal x Lea /hj
   
-Not in my favs but I'm okay w/
+[Not in my favs but I'm okay w/!]:
 - MalIdia
 - LeoVil
 - LeoMal
 - VilIdia
 - Adeuce
+- Floyd x Jamil
   
 > Other ships IWC (caution)
 
@@ -199,6 +203,7 @@ My favs:
 Not in my favs but I'm okay with:
 - Soukoku
 - Shin soukoku
+- Fyolai
 
   > other ships IWC (caution)
 
@@ -207,8 +212,8 @@ Not in my favs but I'm okay with:
 
 # Other Fandoms
 - IWC (caution)
-- I respect all ships that aren't problematic.
-> I'm fine w/ other ships also but still do int w/ caution for the other ships I haven't mentioned.
+- I respect all ships that aren't problematic/ controversial!
+- I'm fine w/ other ships also but still do int w/ caution for the other ships I haven't mentioned.
 
 ***
 Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with me as a ship, sometimes I won't entertain you because I simply dont ship it. 
@@ -218,23 +223,23 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 <details>
   <summary>"ℙ𝕠𝕟𝕪 𝕋𝕠𝕨𝕟 ℝ𝕖𝕝𝕒𝕥𝕖𝕕"</summary>
 
-  - C+H is encouraged,, when I feel overwhelmed/ overstimulated I like hiding behind my friends.
+  - C+H is encouraged!
     
   - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
    > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!
 
   - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
-> PLSPLS INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—)
+> PLSPLS if u wanna ne friends, INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—) <33
 
   - I'm ok w/ roleplays
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
 
 - Ships DNI!
-  > Unless youre close with me and know what I like. I likely won't entertain you if you approach me for the sole reason of shipping.
+  > Unless you're close with me and know what I like. I likely won't entertain you if you approach me for the sole purpose of shipping characters.
   > NOTE: Must read the "𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!" to get a better understanding on which ships I allow to int w/ me, and check my DNI list on which ships I don't like. 
 
 - DNC,, [Do not copy] any of my cos!!
-  >You are allowed to take inspo idrc as long as it's not one to one copies,, STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3 
+  >You are allowed to take inspo idrc as long as it's not one to one copies,, but STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3 
   > Know the difference between inspiration and straight up copying.
   
   > I also only gift skins to close friends!
