@@ -1,8 +1,7 @@
 𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)
-<img width="700" height="130" alt="lyric_" src="https://github.com/user-attachments/assets/22e152dc-083f-4525-9d6f-951399d2e7d4" />
+<img width="736" height="414" alt="1000071132" src="https://github.com/user-attachments/assets/5f198653-091d-4939-9251-425bb71e54ce" />
 
-
-<img width="700" height="350" alt="1000070831" src="https://github.com/user-attachments/assets/c70ad477-4ec8-4d93-bd89-123f819a8366" />
+<img width="736" height="134" alt="1000071128" src="https://github.com/user-attachments/assets/468b281f-6992-4400-b7bd-1d7a21db5d99" />
 
 
 <img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" /> 
