@@ -16,8 +16,7 @@
 <img width="734" height="168" alt="1000071209" src="https://github.com/user-attachments/assets/4abfaf26-dd1a-429e-ac04-803c32a903c8" />
 
 
-  **``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,**<img width="70" height="51" alt="1000071203" src="https://github.com/user-attachments/assets/3f0e95d0-6af6-45ba-b3cc-84e8c932865f" />
-
+  **``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,**
 
 - "ꜰɪʟ ᴋɪᴋᴀʏ ɢɪʀʟɪᴇ"
 - "ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ!,, ᴀʀɪᴇꜱ ,, ᴀᴘʀɪʟ 10"
