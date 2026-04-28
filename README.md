@@ -1,5 +1,8 @@
 𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)
-<img width="500" height="140" alt="1000071186" src="https://github.com/user-attachments/assets/1f5d0ba7-57b3-4fbe-bc89-8ab469111640" />
+<img width="736" height="197" alt="1000071195" src="https://github.com/user-attachments/assets/bcaf3ef1-2f63-4440-94b0-e7d3d0990728" />
+
+<img width="603" height="102" alt="1000071199" src="https://github.com/user-attachments/assets/7bf5ea68-9847-4a15-a098-649a082702ff" />
+
 
 <img width="2395" height="1340" alt="1000071185" src="https://github.com/user-attachments/assets/89455664-b2d4-4a22-9083-0f6caa28698e" />
 <img width="609" height="103" alt="1000071181" src="https://github.com/user-attachments/assets/dc4f6d2c-5b5f-4b4b-8da9-9245a9f2120d" />
@@ -8,7 +11,9 @@
 ## *❝ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢❞*
 
  # ``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,
-⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
+ 
+<img width="667" height="116" alt="1000071194" src="https://github.com/user-attachments/assets/71018d58-4a8e-425c-bc6a-2c688e0ce23a" />
+
 - "ꜰɪʟ ᴋɪᴋᴀʏ ɢɪʀʟɪᴇ"
 - "ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ!,, ᴀʀɪᴇꜱ ,, ᴀᴘʀɪʟ 10"
 - "ɪ'ᴍ ᴏɴ ᴘᴏɴʏ ᴛᴏᴡɴ ᴀ ʟᴏᴛ"
@@ -158,9 +163,6 @@ May or may not be dirty minded so IWC ig:
 - Darkshippers
 - VilNeige shippers
 - RookNeige shippers
-
-  
-⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔
   
 > **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and you're covering me,,  (◞‸ ◟)💧**
 
@@ -244,9 +246,8 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 
   </details>
   
-   ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
 
 ![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
- ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
+<img width="609" height="103" alt="1000071181" src="https://github.com/user-attachments/assets/6a435aef-a82d-4f99-91f9-ec2405e17948" />
 
  ᴛʜᴀᴛ'ꜱ ᴀʟʟ! ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴛᴡ + ᴇxᴛʀᴀ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ...
