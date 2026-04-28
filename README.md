@@ -13,7 +13,7 @@
 
 ## *❝ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢❞*
 
-<img width="900" height="198" alt="1000071272" src="https://github.com/user-attachments/assets/bf929b71-188e-40af-9f13-1ada02fc5c3e" />
+<img width="900" height="198" alt="1000071273" src="https://github.com/user-attachments/assets/16bd0e35-8617-4a35-83a2-6e0607f54f9b" />
 
 
   **``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,**
@@ -26,8 +26,7 @@
 - "ᴇɴɢʟɪꜱʜ ɪꜱ ᴍʏ 2ɴᴅ ʟᴀɴɢᴜᴀɢᴇ (ᴛᴇᴄʜɴɪᴄᴀʟʟʏ 3ʀᴅ),, ᴡᴀʀɴɪɴɢ ꜰᴏʀ ɢʀᴀᴍᴍᴀʀ ᴀɴᴅ ꜱᴘᴇʟʟɪɴɢ ᴍɪꜱᴛᴀᴋᴇꜱ ɪɴ ᴀᴅᴠᴀɴᴄᴇ"
   > ɪ'ᴅ ꜱᴀʏ ɪ'ᴍ ᴘʀᴇᴛᴛʏ ꜰʟᴜᴇɴᴛ ɪɴ ᴇɴɢʟɪꜱʜ ʙᴜᴛ ɪ ᴍᴀʏ ᴅᴏ ꜱᴏᴍᴇ ᴄᴏᴅᴇ-ꜱᴡɪᴛᴄʜɪɴɢ ꜱᴏᴍᴇᴛɪᴍᴇꜱ ʙᴇᴄᴀᴜꜱᴇ ɪ'ᴍ ᴜꜱᴇᴅ ᴛᴏ ᴍʏ ɴᴀᴛɪᴠᴇ ʟᴀɴɢᴜᴀɢᴇ. ᴜꜱᴜᴀʟʟʏ ɪ ᴀᴍ ᴠᴇʀʏ Qᴜɪᴄᴋ ᴛᴏ ᴀᴅᴊᴜꜱᴛ ᴛʜᴏᴜɢʜ!
 
-<img width="900" height="198" alt="1000071272" src="https://github.com/user-attachments/assets/00433153-3401-4dbf-9063-743621f6e6e8" />
-
+<img width="900" height="198" alt="1000071273" src="https://github.com/user-attachments/assets/16bd0e35-8617-4a35-83a2-6e0607f54f9b" />
 
 **𝕄𝕠𝕣𝕖 𝕀𝕟𝕗𝕠:**
  
