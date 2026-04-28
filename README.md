@@ -250,7 +250,7 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
   </details>
   
 
-![Фан-переводы twst-contents на русский_ ❗❗Некоторые Истории не мои❗❗ … #фанфик # Фанфик # amreading # books # wattpad](https://github.com/user-attachments/assets/f9add170-d20d-421d-a31f-bc63414f2121)
+<img width="730" height="410" alt="Twisted Wonderland_ Azul Ashengrotto Birthday card…" src="https://github.com/user-attachments/assets/6a09e270-1660-493f-a5f9-7e8af515edd3" />
 <img width="720" height="103" alt="1000071181" src="https://github.com/user-attachments/assets/6a435aef-a82d-4f99-91f9-ec2405e17948" />
 
  ᴛʜᴀᴛ'ꜱ ᴀʟʟ! ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴛᴡ + ᴇxᴛʀᴀ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ...
