@@ -1,10 +1,9 @@
 𝓘 𝓛𝓞𝓥𝓔 𝓜𝓨 𝓑𝓞𝓨𝓕𝓡𝓘𝓔𝓝𝓓(𝓢)
-<img width="736" height="414" alt="1000071132" src="https://github.com/user-attachments/assets/5f198653-091d-4939-9251-425bb71e54ce" />
+<img width="500" height="140" alt="1000071186" src="https://github.com/user-attachments/assets/1f5d0ba7-57b3-4fbe-bc89-8ab469111640" />
 
-<img width="736" height="134" alt="1000071128" src="https://github.com/user-attachments/assets/468b281f-6992-4400-b7bd-1d7a21db5d99" />
+<img width="2395" height="1340" alt="1000071185" src="https://github.com/user-attachments/assets/89455664-b2d4-4a22-9083-0f6caa28698e" />
+<img width="609" height="103" alt="1000071181" src="https://github.com/user-attachments/assets/dc4f6d2c-5b5f-4b4b-8da9-9245a9f2120d" />
 
-
-<img width="700" height="200" alt="download__32_-removebg-preview (1)" src="https://github.com/user-attachments/assets/5e210379-0114-417e-bfe1-2de3542ed3c6" /> 
 
 ## *❝ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢❞*
 
