@@ -10,7 +10,7 @@
 
 ## *❝ℌ𝔬𝔴 𝔭𝔬𝔬𝔯 𝔞𝔫𝔡 𝔲𝔫𝔣𝔬𝔯𝔱𝔲𝔫𝔞𝔱𝔢 𝔶𝔬𝔲 𝔞𝔯𝔢❞*
 
- # ``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,
+  **``𝓒𝓪𝓵𝓵 𝓶𝓮 𝓡𝓲𝓻𝓲, 𝓡𝓲𝓷𝓷𝓲𝓮, 𝓡𝓲𝓷,,**
  
 <img width="667" height="116" alt="1000071194" src="https://github.com/user-attachments/assets/71018d58-4a8e-425c-bc6a-2c688e0ce23a" />
 
@@ -21,11 +21,10 @@
 - "ᴀɴ ᴀᴢᴜʟ ᴀɴᴅ ᴋᴀʟɪᴍ ᴋɪɴɴɪᴇ!"
 - "ᴇɴɢʟɪꜱʜ ɪꜱ ᴍʏ 2ɴᴅ ʟᴀɴɢᴜᴀɢᴇ (ᴛᴇᴄʜɴɪᴄᴀʟʟʏ 3ʀᴅ),, ᴡᴀʀɴɪɴɢ ꜰᴏʀ ɢʀᴀᴍᴍᴀʀ ᴀɴᴅ ꜱᴘᴇʟʟɪɴɢ ᴍɪꜱᴛᴀᴋᴇꜱ ɪɴ ᴀᴅᴠᴀɴᴄᴇ"
   > ɪ'ᴅ ꜱᴀʏ ɪ'ᴍ ᴘʀᴇᴛᴛʏ ꜰʟᴜᴇɴᴛ ɪɴ ᴇɴɢʟɪꜱʜ ʙᴜᴛ ɪ ᴍᴀʏ ᴅᴏ ꜱᴏᴍᴇ ᴄᴏᴅᴇ-ꜱᴡɪᴛᴄʜɪɴɢ ꜱᴏᴍᴇᴛɪᴍᴇꜱ ʙᴇᴄᴀᴜꜱᴇ ɪ'ᴍ ᴜꜱᴇᴅ ᴛᴏ ᴍʏ ɴᴀᴛɪᴠᴇ ʟᴀɴɢᴜᴀɢᴇ. ᴜꜱᴜᴀʟʟʏ ɪ ᴀᴍ ᴠᴇʀʏ Qᴜɪᴄᴋ ᴛᴏ ᴀᴅᴊᴜꜱᴛ ᴛʜᴏᴜɢʜ!
-  > 
- ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
 
-# 𝕄𝕠𝕣𝕖 𝕀𝕟𝕗𝕠:
-˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　
+
+**𝕄𝕠𝕣𝕖 𝕀𝕟𝕗𝕠:**
+ 
 <details>
 <summary> 𝔹𝕐𝕀 (𝕋𝕎!! 𝕗𝕠𝕣 𝕤𝕖𝕟𝕤𝕚𝕥𝕚𝕧𝕖 𝕥𝕠𝕡𝕚𝕔𝕤)</summary>
 
@@ -35,19 +34,17 @@
 
 - You can rant to me and I'll listen but I likely won't comfort you as I'm not the best at it.
 
-***
 - I'm not interested in political conversation. If you want someone to talk to about politics, then I'm not the person for that, I apologize!
-  > Because no, I don't want to talk about politics in a pixel game where I'm trying to have fun.
-
-  > At best, talk to me about it via DMs (can't guarantee I will engage)
+  > Because no, I don't want to talk about politics esp. in a pixel game where I'm trying to have fun.
 
 </details>
 
 
-# "𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀" 
+**"𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀"**
+
 <details>
   <summary>"𝕊𝕥𝕒𝕥𝕦𝕤 𝕒𝕟𝕕 𝕊𝕥𝕦𝕗𝕗"</summary>
-⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔
   ₍ᐢ. .ᐢ₎
 
 - [🍏] ᴏɴʟɪɴᴇ
@@ -181,7 +178,7 @@ May or may not be dirty minded so IWC ig:
 - AzuJami
 - Kaliruggie
 - Azul x me /j
-- Mal x Lea /hj
+- Mal x Eleanore /hj
   
 [Not in my favs but I'm okay w/!]:
 - MalIdia
