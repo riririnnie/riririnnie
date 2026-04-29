@@ -37,13 +37,64 @@
 
 -  So keep that in mind if for any reason you have to use those words while you're with me. I'm fine if you make inappropriate jokes, I do too, but this is where I draw the line. Please respect my boundaries, thank you.
 
-- You can rant to me and I'll listen but I likely won't comfort you as I'm not the best at it.
-
 - I'm not interested in political conversation. If you want someone to talk to about politics, then I'm not the person for that, I apologize!
   > Because no, I don't want to talk about politics esp. in a pixel game where I'm trying to have fun.
 
+- May or may not be dirty minded so IWC ig:
+> I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
+ദ്ദി ˉ͈̀꒳ˉ͈́ )
+
 </details>
 
+<details> <summary> "𝔻𝕆 ℕ𝕆𝕋 (𝕀ℕ𝕋𝔼ℝ𝔸ℂ𝕋)" </summary>
+# 🚫 [LITERALLY DNI]
+
+🚫 If you: 
+- Call me any names like baby, babe, darling, etc. If we're not close!
+  >If we've been chatting for a while feel free to use any nicknames
+
+- Ask to date me?? wtf??
+  >Especially if we're not even close
+  
+  >I'm also taken IRL <3
+
+  > Im fine w flirting as a joke, just don't ever flirt /srs 💔 
+  
+- Make any homophobic/ ableist/ racists/ offensive jokes! 👎
+  
+- Fem TWST OCs haters
+> Fem Yuusonas AND Fem OCs. Female character hate, esp Fem OCs hate, will NOT be tolerated 👎
+
+- Send death threats to literally anyone,, esp if you're sending death threats to my friends!
+
+  # [DNI!! - Shippers]
+  
+ ❌ [People who ship],,
+- 1st year x 3rd years in twst
+- Ruggie x Leona
+- Diasomnia main cast with each other
+- incest 
+- IDIA X LILIA
+- JAMIKALI (Jamil x Kalim) shippers
+  > If u ship them whtvr, just never mention them in front of my face🚫
+- PROSHIPPERS IN GENERAL DNI PLS
+
+# On thin Ice, but sure.
+
+📣 [IWEC],,
+- Epel x Trey shipper
+- Epel x Cater shipper
+  > VERY TARGETED. U know who u r👎 
+- Sebek x Silver shippers
+- Genshin / Hoyo defenders
+  > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
+- Darkshippers
+- VilNeige shippers
+- RookNeige shippers
+  
+> **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and you're covering me,,  (◞‸ ◟)💧**
+
+   </details>
 
 **"𝕄𝕠𝕣𝕖 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖, 𝕞𝕪𝕤𝕖𝕝𝕗, 𝕒𝕟𝕕 𝕀"**
 
@@ -110,66 +161,8 @@
 
 - 𝐓𝐁𝐇𝐊
 
-  ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔
-  
-May or may not be dirty minded so IWC ig:
-> I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
-ദ്ദി ˉ͈̀꒳ˉ͈́ )
-
 </details>
 
-<details>
-  <summary>"𝔻𝕆 ℕ𝕆𝕋 (𝕀ℕ𝕋𝔼ℝ𝔸ℂ𝕋)"</summary>
-
-# 🚫 [LITERALLY DNI]
-
-🚫 If you: 
-- Call me any names like baby, babe, darling, etc. If we're not close!
-  >If we've been chatting for a while feel free to use any nicknames
-
-- Ask to date me?? wtf??
-  >Especially if we're not even close
-  
-  >I'm also taken IRL <3
-
-  > Im fine w flirting as a joke, just don't ever flirt /srs 💔 
-  
-- Make any homophobic/ ableist/ racists/ offensive jokes! 👎
-  
-- Fem TWST OCs haters
-> Fem Yuusonas AND Fem OCs. Female character hate, esp Fem OCs hate, will NOT be tolerated 👎
-
-- Send death threats to literally anyone,, esp if you're sending death threats to my friends!
-
-  # [DNI!! - Shippers]
-  
- ❌ [People who ship],,
-- 1st year x 3rd years in twst
-- Ruggie x Leona
-- Diasomnia main cast with each other
-- incest 
-- IDIA X LILIA
-- JAMIKALI (Jamil x Kalim) shippers
-  > If u ship them whtvr, just never mention them in front of my face🚫
-- PROSHIPPERS IN GENERAL DNI PLS
-
-# On thin Ice, but sure.
-
-📣 [IWEC],,
-- Epel x Trey shipper
-- Epel x Cater shipper
-  > VERY TARGETED. U know who u r👎 
-- Sebek x Silver shippers
-- Genshin / Hoyo defenders
-  > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
-- Darkshippers
-- VilNeige shippers
-- RookNeige shippers
-  
-> **NOTE: I WILL block weirdos who fall into any of these criteria,, I block/ hide freely esp if you're not my friend and you're covering me,,  (◞‸ ◟)💧**
-
-   </details>
-  
   <details>
 <summary>"𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!"</summary>
 
