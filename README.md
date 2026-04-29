@@ -78,7 +78,7 @@
 - IDIA X LILIA
 - JAMIKALI (Jamil x Kalim) shippers
   > If u ship them whtvr, just never mention them in front of my face🚫
-- PROSHIPPERS IN GENERAL DNI PLS
+- PROSHIPPERS N DARKSHIPPERS IN GENERAL DNI PLS
 
 # On thin Ice, but sure.
 
@@ -89,7 +89,6 @@
 - Sebek x Silver shippers
 - Genshin / Hoyo defenders
   > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
-- Darkshippers
 - VilNeige shippers
 - RookNeige shippers
   
