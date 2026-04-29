@@ -47,7 +47,8 @@
 </details>
 
 <details> <summary> "𝔻𝕆 ℕ𝕆𝕋 (𝕀ℕ𝕋𝔼ℝ𝔸ℂ𝕋)" </summary>
-# 🚫 [LITERALLY DNI]
+ 
+ # 🚫 [LITERALLY DNI]
 
 🚫 If you: 
 - Call me any names like baby, babe, darling, etc. If we're not close!
@@ -119,7 +120,6 @@
 > Do not interact entirely unless friend
 
 -  ᴅɴɪᴜᴄꜰ / ɪᴡᴇᴄᴜᴄꜰ,, ᴇᴛᴄ
->  Esp if we're friends on disc you're allowed to int
 
 > [ᴋɪᴏ, ᴋʀɪʟʟ, ʟʏɴ, ʀᴇᴠɪ, ᴄᴏꜱᴍᴏ, ɪɴᴛ/ ᴄ + ʜ ꜰʀᴇᴇʟʏ]
 
@@ -190,12 +190,12 @@
 
   
 # 𝐁𝐒𝐃
-My favs:
+[My favs]:
 - AtsuLucy
 - KuniZai
 - Ranpoe
 
-Not in my favs but I'm okay with:
+[Not in my favs but I'm okay with]:
 - Soukoku
 - Shin soukoku
 - Fyolai
@@ -221,10 +221,12 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
   - C+H is encouraged!
     
   - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
-   > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!
+   > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!I usually get over my moods fairly quick.
 
   - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
 > PLSPLS if u wanna ne friends, INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—) <33
+
+> Always love making new friends <33
 
   - I'm ok w/ roleplays
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
@@ -246,4 +248,4 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 <img width="730" height="410" alt="Twisted Wonderland_ Azul Ashengrotto Birthday card…" src="https://github.com/user-attachments/assets/6a09e270-1660-493f-a5f9-7e8af515edd3" />
 <img width="720" height="103" alt="1000071181" src="https://github.com/user-attachments/assets/6a435aef-a82d-4f99-91f9-ec2405e17948" />
 
- ᴛʜᴀᴛ'ꜱ ᴀʟʟ! ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴛᴡ + ᴇxᴛʀᴀ ɪɴꜰᴏ ᴏɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ...
+ ᴛʜᴀᴛ'ꜱ ᴀʟʟ! ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴛᴡ + ᴇxᴛʀᴀ ɪɴꜰᴏ ᴏɴ ᴛʜᴇʀᴇ...
