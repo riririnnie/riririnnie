@@ -35,7 +35,7 @@
 
 - NEVER make any r#pe or SA jokes in front of me or with me. I do not like the words: r#pe, gr#pe / gr#ping, s#x/ f#ck t#y, pr#stitute, and if you can, please abbreviate s#xual ass##lt.
 
--  So keep that in mind if for any reason you have to use those words while you're with me. I'm fine if you make inappropriate jokes, I do too, but this is where I draw the line. Please respect my boundaries, thank you.
+-  So keep that in mind if for any reason you have to use those words while you're with me. I'm fine if you make inappropriate jokes, I do too, but this is where I draw the line. Please respect my boundaries, thank you! <3
 
 - I'm not interested in political conversation. If you want someone to talk to about politics, then I'm not the person for that, I apologize!
   > Because no, I don't want to talk about politics esp. in a pixel game where I'm trying to have fun.
@@ -74,7 +74,10 @@
 - 1st year x 3rd years in twst
 - Ruggie x Leona
 - Diasomnia main cast with each other
-- incest 
+- incest
+- Epel x Trey shipper
+- Epel x Cater shipper
+  > VERY TARGETED. U know who u r👎 
 - IDIA X LILIA
 - JAMIKALI (Jamil x Kalim) shippers
   > If u ship them whtvr, just never mention them in front of my face🚫
@@ -83,9 +86,6 @@
 # On thin Ice, but sure.
 
 📣 [IWEC],,
-- Epel x Trey shipper
-- Epel x Cater shipper
-  > VERY TARGETED. U know who u r👎 
 - Sebek x Silver shippers
 - Genshin / Hoyo defenders
   > I don't mind if you like Genshin, this is only for the people that defend Genshin's / Hoyo's problematic stuff and glaze the hell out of the game(s)
@@ -217,15 +217,17 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 <details>
   <summary>"ℙ𝕠𝕟𝕪 𝕋𝕠𝕨𝕟 ℝ𝕖𝕝𝕒𝕥𝕖𝕕"</summary>
 
-  - C+H is encouraged!
-    
-  - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
+- C+H is encouraged!
+
+- I'm up 4 any int as long as you approach me respectfully!
+
+- I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
    > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!I usually get over my moods fairly quick.
 
   - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
 > PLSPLS if u wanna ne friends, INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—) <33
 
-> Always love making new friends <33
+> Always love making new friends <33 Also up 4 any int as long as u approach me respectfully!
 
   - I'm ok w/ roleplays
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
