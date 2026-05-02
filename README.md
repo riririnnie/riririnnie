@@ -40,6 +40,9 @@
 - I'm not interested in political conversation. If you want someone to talk to about politics, then I'm not the person for that, I apologize!
   > Because no, I don't want to talk about politics esp. in a pixel game where I'm trying to have fun.
 
+- I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
+   > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!I usually get over my moods fairly quick <3
+ 
 - May or may not be dirty minded so IWC ig:
 > I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
 ദ്ദി ˉ͈̀꒳ˉ͈́ )
@@ -219,10 +222,7 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 
 - C+H is encouraged!
 
-- I'm up 4 any int as long as you approach me respectfully!
-
-- I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
-   > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!I usually get over my moods fairly quick.
+- I'm up 4 any int as long as you approach me respectfull
 
 - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
 > PLSPLS if u wanna ne friends, INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—) <33
