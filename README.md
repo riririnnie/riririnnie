@@ -224,7 +224,7 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
    > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!I usually get over my moods fairly quick.
 
-  - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
+- I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
 > PLSPLS if u wanna ne friends, INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—) <33
 
 > Always love making new friends <33 Also up 4 any int as long as u approach me respectfully!
