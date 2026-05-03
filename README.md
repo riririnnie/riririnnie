@@ -237,8 +237,7 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
   > NOTE: Must read the "𝕊𝕙𝕚𝕡𝕤 𝕀 𝕝𝕚𝕜𝕖,, 𝕒𝕤 𝕒 𝕄𝕦𝕝𝕥𝕚𝕤𝕙𝕚𝕡𝕡𝕖𝕣!" to get a better understanding on which ships I allow to int w/ me, and check my DNI list on which ships I don't like. 
 
 - DNC,, [Do not copy] any of my cos!!
-  >You are allowed to take inspo idrc as long as it's not one to one copies,, but STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3 
-  > Know the difference between inspiration and straight up copying.
+  >You are allowed to take inspo idrc as long as it's not one to one copies,, but STRICTLY NO COLORPICKING! gifted cos/ skins to friends are an exception <3
   
   > I also only gift skins to close friends!
 
