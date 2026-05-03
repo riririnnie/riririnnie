@@ -222,15 +222,16 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 
 - C+H is encouraged!
 
-- I'm up 4 any int as long as you approach me respectfull
+- I'm up 4 any int as long as you approach me respectfully!
 
 - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
-> PLSPLS if u wanna ne friends, INT FIRST IF WE'RE NOT CLOSE... (ᵕ—ᴗ—) <33
 
-> Always love making new friends <33 Also up 4 any int as long as u approach me respectfully!
+> Always love making new friends, but sometimes I'm to shy to approach you, so I'll appreciate it if you decide to interact first! <33 
 
   - I'm ok w/ roleplays
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
+
+- Alwys check my name! sometimes I will have DNI, IWC, or something similar on there !
 
 - Ships DNI!
   > Unless you're close with me and know what I like. I likely won't entertain you if you approach me for the sole purpose of shipping characters.
