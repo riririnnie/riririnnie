@@ -42,6 +42,9 @@
 
 - I'll sometimes go from talkative to quiet because of low social battery so don't mind that.
    > Or I'm simply not in the mood to talk, so I'd appreciate it if you remain patient with me!I usually get over my moods fairly quick <3
+
+ - I'm a yumeshipper okay? Azul yumeshipper and only selective sharing! Idrc about doubles, but I won't interact w/ them or will not be interested interacting w/ them. Feel free to block me 4 comfort ofc!
+ - > I yume w other chars but view SP for more info on this
  
 - May or may not be dirty minded so IWC ig:
 > I make suggestive jokes a lot but only if we're close / I'm really comfrotable with you, but if you're uncomfortable with that please tell me!
