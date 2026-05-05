@@ -226,7 +226,7 @@ Again: I'm a multishipper, but I dont ship every ship, so if you wish to rp with
 
 - I get shy if we're not close so if you want to talk to me I'd really  appreciate it if you interact first!
 
-> Always love making new friends, but sometimes I'm to shy to approach you, so I'll appreciate it if you decide to interact first! <33 
+> Always love making new friends!! So pls interact if I dont have DNI on my name! <33 𐔌՞ ܸ.ˬ.ܸ՞𐦯
 
   - I'm ok w/ roleplays
   > Lately I don't feel like doing rps, but I'll still participate in them from time to time (˶ᵔ ᵕ ᵔ˶)
