@@ -1,4 +1,4 @@
-<img width="790" height="316" alt="xssdbt-removebg-preview" src="https://github.com/user-attachments/assets/8a07f268-78ad-4b95-b425-def476c26959" />
+<img width="790" height="250" alt="xssdbt-removebg-preview" src="https://github.com/user-attachments/assets/8a07f268-78ad-4b95-b425-def476c26959" />
 
 
 $${\color{#771919} \text {‎‎𝒞𝓊𝓇𝓈ℯ𝓈,, 𝒷𝓎 𝒯𝒽ℯ 𝒞𝓇𝒶𝓃ℯ 𝒲𝒾𝓋ℯ𝓈
