@@ -13,11 +13,11 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 ‎‎ ‎‎ ᴛʜᴇʏ'ʀᴇ ᴏɴʟʏ ʀᴇꜱᴇʀᴠᴇᴅ ꜰᴏʀ ᴍʏ ᴄʟᴏꜱᴇ ꜰʀɪᴇɴᴅꜱ!
 
 ‎ ‎ 𝓑𝓨𝓘\
-I yap a lot, but my social battery gets drained very easily\
-Do be patient w/ me when I get like this!
+ɪ ʏᴀᴘ ᴀ ʟᴏᴛ, ʙᴜᴛ ᴍʏ ꜱᴏᴄɪᴀʟ ʙᴀᴛᴛᴇʀʏ ɢᴇᴛꜱ ᴅʀᴀɪɴᴇᴅ ᴠᴇʀʏ ᴇᴀꜱɪʟʏ\
+ᴅᴏ ʙᴇ ᴘᴀᴛɪᴇɴᴛ ᴡ/ ᴍᴇ ᴡʜᴇɴ ɪ ɢᴇᴛ ʟɪᴋᴇ ᴛʜɪꜱ!
 
-When my social battery is low or I'm in a bad mood\
-in general I tend to ghost others, close friend or not
+ᴡʜᴇɴ ᴍʏ ꜱᴏᴄɪᴀʟ ʙᴀᴛᴛᴇʀʏ ɪꜱ ʟᴏᴡ ᴏʀ ɪ'ᴍ ɪɴ ᴀ ʙᴀᴅ ᴍᴏᴏᴅ\
+ɪɴ ɢᴇɴᴇʀᴀʟ ɪ ᴛᴇɴᴅ ᴛᴏ ɢʜᴏꜱᴛ ᴏᴛʜᴇʀꜱ, ᴄʟᴏꜱᴇ ꜰʀɪᴇɴᴅ ᴏʀ ɴᴏᴛ
 
 Don't take it too personally, I do it to everyone, though I will eventually respond\
 But I will definitely respond late!
@@ -26,13 +26,27 @@ I have PTSD and suspected depression, so if you don't wish to\
 befriend someone with negative energy and bad mood swings sometimes\
 I suggest you don't friend me.
 
+
+I won't vent to you unless I've known you for a long time\
+I'm not good at comforting so I'm not the best person to go to if\
+you seek advice.
+
 <details>
   <summary>TW for sensitive topics mentioning SA</summary>
   
- I don't like SA / r#pe jokes or anything of the sorts.\
-If you have that kind of dark humor, do not approach me!
+Most of my trauma is from being SA'd so don't be\
+an asshole and joke about anything related to it.
+
+Don't force me to vent to you either as I only vent to my irls or rlly close friends.\
+So don't force it and get pushy with me.
+
+> Most definitely targetted! But still keep this in mind.
+  
+I don't like SA / r#pe jokes or anything of the sorts.\
+If you have that kind of dark humor, do not approach me!\
 Also please avoid any mentioning of pr#stituti#n to me if you can.
 
-My Triggers (Specf words): R#pe, gr#pe/ gr#ping, s#xual assa#ult, r#pe, pr#stitute/ anything related to it.
+My Triggers (Specf words): R#pe, gr#pe/ gr#ping,\
+s#xual assa#ult, r#pe, pr#stitute/ anything related to it.
   
 </details>
