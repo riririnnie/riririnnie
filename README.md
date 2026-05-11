@@ -19,20 +19,18 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 ᴡʜᴇɴ ᴍʏ ꜱᴏᴄɪᴀʟ ʙᴀᴛᴛᴇʀʏ ɪꜱ ʟᴏᴡ ᴏʀ ɪ'ᴍ ɪɴ ᴀ ʙᴀᴅ ᴍᴏᴏᴅ\
 ɪɴ ɢᴇɴᴇʀᴀʟ ɪ ᴛᴇɴᴅ ᴛᴏ ɢʜᴏꜱᴛ ᴏᴛʜᴇʀꜱ, ᴄʟᴏꜱᴇ ꜰʀɪᴇɴᴅ ᴏʀ ɴᴏᴛ
 
-Don't take it too personally, I do it to everyone, though I will eventually respond\
-But I will definitely respond late!
+ᴅᴏɴ'ᴛ ᴛᴀᴋᴇ ɪᴛ ᴛᴏᴏ ᴘᴇʀꜱᴏɴᴀʟʟʏ, ɪ ᴅᴏ ɪᴛ ᴛᴏ ᴇᴠᴇʀʏᴏɴᴇ, ᴛʜᴏᴜɢʜ ɪ ᴡɪʟʟ ᴇᴠᴇɴᴛᴜᴀʟʟʏ ʀᴇꜱᴘᴏɴᴅ\
+ʙᴜᴛ ɪ ᴡɪʟʟ ᴅᴇꜰɪɴɪᴛᴇʟʏ ʀᴇꜱᴘᴏɴᴅ ʟᴀᴛᴇ!
 
-I have PTSD and suspected depression, so if you don't wish to\
-befriend someone with negative energy and bad mood swings sometimes\
-I suggest you don't friend me.
+ɪ ʜᴀᴠᴇ ᴘᴛꜱᴅ ᴀɴᴅ ꜱᴜꜱᴘᴇᴄᴛᴇᴅ ᴅᴇᴘʀᴇꜱꜱɪᴏɴ, ꜱᴏ ɪꜰ ʏᴏᴜ ᴅᴏɴ'ᴛ ᴡɪꜱʜ ᴛᴏ\ 
+ʙᴇꜰʀɪᴇɴᴅ ꜱᴏᴍᴇᴏɴᴇ ᴡɪᴛʜ ɴᴇɢᴀᴛɪᴠᴇ ᴇɴᴇʀɢʏ ᴀɴᴅ ʙᴀᴅ ᴍᴏᴏᴅ ꜱᴡɪɴɢꜱ ꜱᴏᴍᴇᴛɪᴍᴇꜱ\ 
+ɪ ꜱᴜɢɢᴇꜱᴛ ʏᴏᴜ ᴅᴏɴ'ᴛ ꜰʀɪᴇɴᴅ ᴍᴇ.
 
 
-I won't vent to you unless I've known you for a long time\
-I'm not good at comforting so I'm not the best person to go to if\
-you seek advice.
+ɪ ᴡᴏɴ'ᴛ ᴠᴇɴᴛ ᴛᴏ ʏᴏᴜ ᴜɴʟᴇꜱꜱ ɪ'ᴠᴇ ᴋɴᴏᴡɴ ʏᴏᴜ ꜰᴏʀ ᴀ ʟᴏɴɢ ᴛɪᴍᴇ\ ɪ'ᴍ ɴᴏᴛ ɢᴏᴏᴅ ᴀᴛ ᴄᴏᴍꜰᴏʀᴛɪɴɢ ꜱᴏ ɪ'ᴍ ɴᴏᴛ ᴛʜᴇ ʙᴇꜱᴛ ᴘᴇʀꜱᴏɴ ᴛᴏ ɢᴏ ᴛᴏ ɪꜰ\ ʏᴏᴜ ꜱᴇᴇᴋ ᴀᴅᴠɪᴄᴇ.
 
 <details>
-  <summary>TW for sensitive topics mentioning SA</summary>
+  <summary>тw ғor ѕεɴѕιтιvε тopιcѕ мεɴтιoɴιɴɢ ѕα</summary>
   
 Most of my trauma is from being SA'd so don't be\
 an asshole and joke about anything related to it.
