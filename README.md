@@ -1,3 +1,7 @@
+<img width="1199" height="260" alt="1000071592" src="https://github.com/user-attachments/assets/fc73b8ba-96ec-4aa9-824a-388fbc5266bf" />
+
+
+
 $${\color{#771919} \text {‎‎𝒞𝓊𝓇𝓈ℯ𝓈,, 𝒷𝓎 𝒯𝒽ℯ 𝒞𝓇𝒶𝓃ℯ 𝒲𝒾𝓋ℯ𝓈
 }}$$
 
@@ -8,10 +12,17 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 <img width="734" height="196" alt="le6p4b__2_-removebg-preview" src="https://github.com/user-attachments/assets/18b208e7-3af9-43d8-80ae-1f319ef445cf" />
 
 ## ℜ𝔦𝔫𝔫𝔦𝔢 ,, ℜ𝔦𝔨𝔞
-&emsp; ᴀᴋᴀ ʀɪɴ / ʀɪʀɪ!\
-ꜰᴏʀ ᴏᴛʜᴇʀ ɴɪᴄᴋɴᴀᴍᴇꜱ ᴏʀ ᴘᴇᴛ ɴᴀᴍᴇꜱ,\
+‎ ‎ ‎ ‎ ‎ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌\
+&emsp; ➤ ᴀᴋᴀ ʀɪɴ / ʀɪʀɪ!\
+ꜰᴏʀ ᴏᴛʜᴇʀ ɴɪᴄᴋɴᴀᴍᴇꜱ ᴏʀ ᴘᴇᴛ ɴᴀᴍᴇꜱ,
+
 ‎‎ ‎‎ ᴛʜᴇʏ'ʀᴇ ᴏɴʟʏ ʀᴇꜱᴇʀᴠᴇᴅ ꜰᴏʀ ᴍʏ ᴄʟᴏꜱᴇ ꜰʀɪᴇɴᴅꜱ!
-‎ ‎ ‎ ‎ ‎ ≽(◉˕ ◉ ≼マ
+
+‎ ‎ ‎ ‎ ‎ ≽(◉˕ ◉ ≼マ‎ ‎ ✮‎ ‎ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ ,,\
+ᴍɪɴᴏʀ ‎ ‎ .‎ ‎ ‎ ɪᴡᴄ 18+ ᴀɴᴅ -12
+
+
+
 <details>
 ‎ <summary>‎𝓑𝓨𝓘</summary>
 ɪ ʏᴀᴘ ᴀ ʟᴏᴛ, ʙᴜᴛ ᴍʏ ꜱᴏᴄɪᴀʟ ʙᴀᴛᴛᴇʀʏ ɢᴇᴛꜱ ᴅʀᴀɪɴᴇᴅ ᴠᴇʀʏ ᴇᴀꜱɪʟʏ (ᗒᗣᗕ)՞\
@@ -65,9 +76,12 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 ‎ ‎ ‎ ᴀʙʟᴇɪꜱᴛ, ‎ ‎ ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ‎ ‎ ‎ ʟᴏʟɪᴄᴏɴꜱ‎ / ꜱʜᴏᴛᴀᴄᴏɴꜱ, ‎ ɪɴᴄᴇꜱᴛ ꜱʜɪᴘᴘᴇʀꜱ,\‎ ‎  ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ, ‎ ‎ ᴀꜱꜱʜᴏʟᴇꜱ ɪɴ ɢᴇɴᴇʀᴀʟ ‎ ᴅɴɪ 
 </details>
 
-<img width="733" height="285" alt="1000071566" src="https://github.com/user-attachments/assets/f2f42017-9685-4105-bafb-04d9fb07b473" />
+<img width="733" height="285" alt="1000071566" src="https://github.com/user-attachments/assets/72bd5341-9491-430f-be87-40c2585de6c5" />
+<img width="733" height="100" alt="1000071587" src="https://github.com/user-attachments/assets/2be820f8-460b-425b-93a4-b11fbd868222" />
 
 &emsp;
+
+
 
 "𝑌𝑜𝑢 𝑎𝑙𝑙 𝑘𝑛𝑜𝑤, 𝐼 𝑤𝑎𝑠𝑛'𝑡 𝑘𝑖𝑙𝑙𝑒𝑑 𝑏𝑦 𝑎 𝑐𝑟𝑜𝑤𝑏𝑎𝑟, 𝑟𝑖𝑔ℎ𝑡? 𝐼𝑡 𝑤𝑎𝑠 𝑎 𝑏𝑜𝑚𝑏. 𝐼 𝑑𝑖𝑒𝑑 𝑡𝑟𝑦𝑖𝑛𝑔 𝑡𝑜 𝑠𝑎𝑣𝑒 𝑠𝑜𝑚𝑒𝑜𝑛𝑒 𝐼 𝑐𝑎𝑟𝑒𝑑 𝑎𝑏𝑜𝑢𝑡.
 
@@ -76,3 +90,8 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 𝐼 𝑑𝑖𝑒𝑑 𝑎 𝐻𝐸𝑅𝑂. 𝑇ℎ𝑒 𝑐𝑟𝑜𝑤𝑏𝑎𝑟 𝑐𝑎𝑛'𝑡 𝑒𝑥𝑝𝑙𝑎𝑖𝑛 𝑤ℎ𝑦 𝑤𝑒 𝑑𝑜𝑛'𝑡 𝑠𝑒𝑒 𝑡ℎ𝑒 𝑤𝑜𝑟𝑙𝑑 𝑡ℎ𝑒 𝑠𝑎𝑚𝑒 𝑤𝑎𝑦"
 
 Jason Todd makes me ILL. Ó⁠╭⁠╮⁠Ò
+
+<img width="480" height="259" alt="1000071567" src="https://github.com/user-attachments/assets/87a513d8-27b8-46f7-a307-c5ec23e83770" />
+
+He's so real for this guys. Literally me any time (⁠>⁠0⁠<⁠；⁠)
+
