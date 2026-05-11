@@ -38,7 +38,7 @@ Most of my trauma is from being SA'd so don't be\
 an asshole and joke about anything related to it.
 
 Don't force me to vent to you either as I only vent to my irls or rlly close friends.\
-So don't force it and get pushy with me.
+I don't like venting that much to others anyws.
 
 > Most definitely targetted! But still keep this in mind.
   
@@ -48,5 +48,9 @@ Also please avoid any mentioning of pr#stituti#n to me if you can.
 
 My Triggers (Specf words): R#pe, gr#pe/ gr#ping,\
 s#xual assa#ult, r#pe, pr#stitute/ anything related to it.
+
+I have tics irl and frequent reminders\
+of my trauna triggers my tics episode please\
+understand my boundaries, thank you 𖹭
   
 </details>
