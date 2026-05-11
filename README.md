@@ -1,4 +1,4 @@
-<img width="1199" height="260" alt="1000071592" src="https://github.com/user-attachments/assets/fc73b8ba-96ec-4aa9-824a-388fbc5266bf" />
+<img width="735" height="100" alt="1000071592" src="https://github.com/user-attachments/assets/fc73b8ba-96ec-4aa9-824a-388fbc5266bf" />
 
 
 
@@ -91,9 +91,9 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 
 Jason Todd makes me ILL. Ó⁠╭⁠╮⁠Ò
 
-<img width="480" height="259" alt="1000071567" src="https://github.com/user-attachments/assets/87a513d8-27b8-46f7-a307-c5ec23e83770" />
+‎<img width="700" height="350" alt="1000071567" src="https://github.com/user-attachments/assets/87a513d8-27b8-46f7-a307-c5ec23e83770" />
 
-He's so real for this guys. Literally me any time (⁠>⁠0⁠<⁠；⁠)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He's so real for this guys. Literally me any time (⁠>⁠0⁠<⁠；⁠)
 
 &emsp;&emsp; [۶ৎ Main acc 🖇️](https://github.com/riririnnie)  &emsp; [Strawpage‎ ‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) 
 &emsp;[ᛝ Gimmicks .ᐟ](https://ririandgimmicks.straw.page)
