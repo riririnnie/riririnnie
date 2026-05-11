@@ -67,6 +67,6 @@ Jason Todd makes me ILL. Ó⁠╭⁠╮⁠Ò
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He's so real for this guys. Literally me any time (⁠>⁠0⁠<⁠；⁠)
 
-&emsp;&emsp; [۶ৎ Main acc 🖇️](https://github.com/riririnnie)  &emsp; [Strawpage‎ ‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) 
+&emsp;&emsp; [۶ৎ Main acc 🖇️](https://github.com/riririnnie)  ,,&emsp; [Strawpage‎ ‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) ,,
 &emsp;[ᛝ Gimmicks .ᐟ](https://ririandgimmicks.straw.page)
 
