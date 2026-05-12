@@ -11,7 +11,7 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 <img width="735" height="519" alt="1000071568" src="https://github.com/user-attachments/assets/7db954d9-2882-4493-abbf-ff49836cabc9" />
 <img width="734" height="196" alt="le6p4b__2_-removebg-preview" src="https://github.com/user-attachments/assets/18b208e7-3af9-43d8-80ae-1f319ef445cf" />
 
-## ℜ𝔦𝔫𝔫𝔦𝔢 ,, ℜ𝔦𝔨𝔞
+## ℜ𝔦𝔫𝔫𝔦𝔢 ,, 
 ‎ ‎ ‎ ‎ ‎ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌\
 &emsp; ➤ ᴀᴋᴀ ʀɪɴ / ʀɪʀɪ!\
 ꜰᴏʀ ᴏᴛʜᴇʀ ɴɪᴄᴋɴᴀᴍᴇꜱ ᴏʀ ᴘᴇᴛ ɴᴀᴍᴇꜱ,
