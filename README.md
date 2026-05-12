@@ -44,7 +44,7 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 ʏᴏᴜ ꜱᴇᴇᴋ ᴀᴅᴠɪᴄᴇ.
 
 ‎𝓓𝒩𝓘\
-ᴛʜᴇ ᴜꜱᴜᴀʟ ᴅɴɪ ʟɪꜱᴛ:\‎ ‎ ‎ ‎ ‎ ₍^. .^₎⟆
+ᴛʜᴇ ᴜꜱᴜᴀʟ ᴅɴɪ ʟɪꜱᴛ:‎ ‎ ‎ ‎ ‎ ₍^. .^₎⟆\
 ‎ ‎ ‎ ᴀʙʟᴇɪꜱᴛ, ‎ ‎ ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ‎ ‎ ‎ ʟᴏʟɪᴄᴏɴꜱ‎, ꜱʜᴏᴛᴀᴄᴏɴꜱ, ‎ ɪɴᴄᴇꜱᴛ ꜱʜɪᴘᴘᴇʀꜱ,\‎
  ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ, ‎ ‎ ᴀꜱꜱʜᴏʟᴇꜱ ɪɴ ɢᴇɴᴇʀᴀʟ ‎ ᴅɴɪ 
 </details>
@@ -69,5 +69,5 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ʜᴇ'ꜱ ꜱᴏ ʀᴇᴀʟ ꜰᴏʀ ᴛʜɪꜱ ɢᴜʏꜱ. ʟɪᴛᴇʀᴀʟʟʏ ᴍᴇ ᴀɴʏ ᴛɪᴍᴇ (⁠>⁠0⁠<⁠；⁠)
 
 &emsp;&emsp; [Main acc🖇️](https://github.com/riririnnie)  ,,&emsp; [Strawpage‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) ,,
-&emsp;[ᛝ Gimmicks.ᐟ](https://ririandgimmicks.straw.page)
+&emsp;[ᛝGimmicks.ᐟ](https://ririandgimmicks.straw.page) ,,
 
