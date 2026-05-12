@@ -32,9 +32,11 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 ᴅᴏɴ'ᴛ ᴛᴀᴋᴇ ɪᴛ ᴛᴏᴏ ᴘᴇʀꜱᴏɴᴀʟʟʏ, ɪ ᴅᴏ ɪᴛ ᴛᴏ ᴇᴠᴇʀʏᴏɴᴇ, ᴛʜᴏᴜɢʜ ɪ ᴡɪʟʟ ᴇᴠᴇɴᴛᴜᴀʟʟʏ ʀᴇꜱᴘᴏɴᴅ\
 ʙᴜᴛ ɪ ᴡɪʟʟ ᴅᴇꜰɪɴɪᴛᴇʟʏ ʀᴇꜱᴘᴏɴᴅ ʟᴀᴛᴇ!
 
-ɪ ʜᴀᴠᴇ ᴘᴛꜱᴅ ᴀɴᴅ ꜱᴜꜱᴘᴇᴄᴛᴇᴅ ᴅᴇᴘʀᴇꜱꜱɪᴏɴ, ꜱᴏ ɪꜰ ʏᴏᴜ ᴅᴏɴ'ᴛ ᴡɪꜱʜ ᴛᴏ\
-ʙᴇꜰʀɪᴇɴᴅ ꜱᴏᴍᴇᴏɴᴇ ᴡɪᴛʜ ɴᴇɢᴀᴛɪᴠᴇ ᴇɴᴇʀɢʏ ᴀɴᴅ ʙᴀᴅ ᴍᴏᴏᴅ ꜱᴡɪɴɢꜱ ꜱᴏᴍᴇᴛɪᴍᴇꜱ\
-ɪ ꜱᴜɢɢᴇꜱᴛ ʏᴏᴜ ᴅᴏɴ'ᴛ ꜰʀɪᴇɴᴅ ᴍᴇ.
+ɪ ᴜꜱᴜᴀʟʟʏ ᴅᴏɴ'ᴛ ɪɴᴛᴇʀᴀᴄᴛ ꜰɪʀꜱᴛ ʙᴄꜱ\
+ɪ ɢᴇᴛ ꜱʜʏ, ʙᴜᴛ ɪ ᴅᴏɴ'ᴛ ᴍɪɴᴅ ᴀɴʏ ɪɴᴛᴇʀᴀᴄᴛɪᴏɴ!\
+
+ᴛʜᴀᴛ ɪꜱ ᴜɴʟᴇꜱꜱ ɪ ʜᴀᴠᴇ ᴅɴɪ ᴏʀ ᴀɴʏᴛʜɪɴɢ ᴏꜰ ᴛʜᴇ ꜱᴏʀᴛꜱ ᴏɴ ᴍʏ ɴᴀᴍᴇ,\
+ꜱᴏ ᴘʟᴇᴀꜱᴇ ᴀʟᴡᴀʏꜱ ᴄʜᴇᴄᴋ ᴍʏ ɴᴀᴍᴇ ʙ4 ɪɴᴛᴇʀᴀᴄᴛɪɴɢ! 
 
 ɪ'ᴍ ᴀ ᴍɪɴᴏʀ, ꜱᴏ 18+ ɪᴡᴄ ᴀɴᴅ ᴀᴄᴛ ᴀᴘᴘʀᴏᴘʀɪᴀᴛᴇʟʏ! 
 
@@ -67,6 +69,6 @@ Jason Todd makes me ILL. Ó⁠╭⁠╮⁠Ò
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He's so real for this guys. Literally me any time (⁠>⁠0⁠<⁠；⁠)
 
-&emsp;&emsp; [۶ৎ Main acc 🖇️](https://github.com/riririnnie)  ,,&emsp; [Strawpage‎ ‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) ,,
-&emsp;[ᛝ Gimmicks .ᐟ](https://ririandgimmicks.straw.page)
+&emsp;&emsp; [Main acc🖇️](https://github.com/riririnnie)  ,,&emsp; [Strawpage‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) ,,
+&emsp;[ᛝ Gimmicks.ᐟ](https://ririandgimmicks.straw.page)
 
