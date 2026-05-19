@@ -69,9 +69,11 @@ $${\color{#771919} \text {‎‎‎When‎ this‎‎   house‎ don't feel‎ l
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ʜᴇ'ꜱ ꜱᴏ ʀᴇᴀʟ ꜰᴏʀ ᴛʜɪꜱ ɢᴜʏꜱ. ʟɪᴛᴇʀᴀʟʟʏ ᴍᴇ ᴀɴʏ ᴛɪᴍᴇ (⁠>⁠0⁠<⁠；⁠)
 
-&emsp;&emsp; [Main acc🖇️](https://github.com/riririnnie)  ,,&emsp; [Strawpage‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) ,,
+&emsp;&emsp; [riririnnie🖇️](https://github.com/riririnnie)  ,,&emsp; [Strawpage‎ 𓏵🍓](https://shiftr2gettoknowriri.straw.page) ,,
 &emsp;[ᛝGimmicks.ᐟ](https://ririandgimmicks.straw.page) ,,‎ ‎ ‎ ‎ ‎[Pronouns](https://pronouns.cc/@riririnnie) ,,
 
 <img width="225" height="180" alt="1000071640" src="https://github.com/user-attachments/assets/f0902192-7633-45f4-9d8e-1d7b0a5aa0e9" />
 
 ꜱɪɢɴ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜰᴏʀ ʜᴀᴍᴘᴛᴇʀ ᴊᴀꜱᴏɴ ᴛᴏᴅᴅ
+
+ᴛʜɪꜱ ɪꜱ ᴊᴜꜱᴛ ᴀɴ ᴀʟᴛ ᴀᴄᴄ ᴄᴜᴢ ɪ ᴡᴀɴᴛᴇᴅ ᴛᴏ ᴍᴀᴋᴇ ɪᴛ ʀᴇᴅ ʜᴏᴏᴅ ᴛʜᴇᴍᴇᴅ..... ʙᴜᴛ ᴛᴏᴛᴀʟʟʏ ɢᴏ ꜰᴏʟʟᴏᴡ ᴍʏ ᴍᴀɪɴ ɢᴜʏꜱ!1!1!
